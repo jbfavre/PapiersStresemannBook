@@ -1,0 +1,72 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<!DOCTYPE html>
+<html xmlns="http://www.w3.org/1999/xhtml" xmlns:epub="http://www.idpf.org/2007/ops"$if(lang)$ xml:lang="$lang$"$endif$>
+<head>
+  <meta charset="utf-8" />
+
+<!-- Basic metadata -->
+  <title>$title$</title>
+$for(author)$
+  <meta name="author" content="$author$" />
+$endfor$
+$if(date)$
+  <meta name="date" content="$date$" />
+$endif$
+
+<!-- Custom metadata -->
+  <meta name="generator" content="Tooptee Publisher" />
+$if(tags)$
+  <meta name="keywords" content="$for(tags)$$tags$$sep$,$endfor$" />
+$endif$
+$if(description)$
+  <meta name="description" content="$description$" />
+$endif$
+
+$for(css)$
+  <link rel="stylesheet" type="text/css" href="$css$" />
+$endfor$
+
+</head>
+<body>
+$if(titlepage)$
+  <h1 class="title">
+  $for(title)$
+  $if(title.is_title)$
+    $title.text$
+  $endif$
+  $if(title.is_subtitle)$
+    <br/>-<br/>$title.text$
+  $endif$
+  $endfor$
+  </h1>
+
+  $for(creator)$
+  $if(creator.is_author)$
+  <h2 class="author">$creator.text$</h2>
+  $endif$
+  $if(creator.is_illustrator)$
+  <p class="illustrator">Illustrations de<br/><em>$creator.text$</em></p>
+  $endif$
+  $endfor$
+
+  $for(date)$
+  $if(date.first_edition)$
+  <h3 class="date">$date.text$</h3>
+  $endif$
+  $endfor$
+  $for(creator)$
+  $if(creator.is_editor)$
+  <p class="editor">Édité par<br/><em>$creator.text$</em></p>
+  $endif$
+  $endfor$
+  $for(title)$
+  $if(title.is_collection)$
+  <p class="collection">Dans la collection<br/><em>$title.text$</em></p>
+  $endif$
+  $endfor$
+
+$else$
+$body$
+$endif$
+</body>
+</html>
