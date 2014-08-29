@@ -77,11 +77,8 @@ function fix_typo() {
   egrep -q '[   ]{0,}:' ${FILE} && \
     sed -i 's/[   ]\{0,\}:/ :/g' ${FILE}
 
-  echo "Fixing markdown images"
-    sed -i 's/^[   ]\{1,\}!\[/\!\[/g' ${FILE}
-
   echo "Fixing dialogs"
-    sed -i 's/^-[   ]\{0,\}/— /g' ${FILE}
+    sed -i 's/^-[   ]\{0,\}[^-]\{2\}/— /g' ${FILE}
 
   echo "Fixing quotes"
     sed -i "s/'/’/g" ${FILE}
@@ -104,6 +101,11 @@ function fix_typo() {
     sed -i 's/A /À /g' ${FILE}
     sed -i 's/\.\.\./…/g' ${FILE}
 
+  echo "Fixing markdown images"
+    sed -i 's/^[   ]\{1,\}!\[/\!\[/g' ${FILE}
+
+  echo "Fixing markdown footnotes"
+    sed -i 's/^\[\(\^[1-9]\{1,\}-[1-9]\{1,\}\)\][   ]\{1,\}:/\[\1\]:/g' ${FILE}
 
 }
 
