@@ -968,7 +968,7 @@ de façon hostile à l’Angleterre.
 Au-dessus de Mannheim des aviateurs français exécutent des vols 
 d’exploration. 
 
-— --
+---
 
 [^1-1]: Le lecteur trouvera des extraits de ce long _curriculum_, véritable 
 confession du jeune Stresemann, dans l’ouvrage du baron von Rheinbaben 
