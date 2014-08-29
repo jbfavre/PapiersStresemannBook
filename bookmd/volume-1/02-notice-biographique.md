@@ -970,7 +970,7 @@ d’exploration.
 
 — --
 
-[^1-1] : Le lecteur trouvera des extraits de ce long _curriculum_, véritable 
+[^1-1]: Le lecteur trouvera des extraits de ce long _curriculum_, véritable 
 confession du jeune Stresemann, dans l’ouvrage du baron von Rheinbaben 
 (_Stresemann, der Mensch und Staatsmann_, Dresde, 1930). — Gustave Stresemann 
 naquit le 10 mai 1878 à Berlin, dans un quartier populaire 
@@ -983,14 +983,14 @@ plutôt solitaire et très studieuse, il conserva, bien que graduellement
 affaiblis, certains besoins d’imagination et de pensée spéculative (Note 
 des Tr.).
 
-[^1-2] : Association protestante fondée à Eisenach en 1865, de tendance 
+[^1-2]: Association protestante fondée à Eisenach en 1865, de tendance 
 libérale et moderniste. (Note des Tr.) 
 
-[^1-3] : Sociétés d’étudiants portant couleurs, obéissant aux règles 
+[^1-3]: Sociétés d’étudiants portant couleurs, obéissant aux règles 
 très strictes d’un code d’honneur, et de tendances très conservatrices. 
 (Note des Tr.) 
 
-[^1-4] : En août 1923, Stresemann écrivait les lignes suivantes : 
+[^1-4]: En août 1923, Stresemann écrivait les lignes suivantes : 
 « Quelques semaines avant que les événements politiques m’eussent fait 
 devenir chancelier, j’ai profité de quelques heures de loisir, à Hombourg, 
 pour rédiger un chapitre de mon autobiographie. J’ai mentionné en 
@@ -1002,15 +1002,15 @@ C’est ce fragment d’autobiographie que nous venons de mettre sous les yeux
 du lecteur, et c’est tout ce que Stresemann a rédigé de l’histoire de sa 
 vie ; sa mort prématurée l’empêcha d’en écrire davantage. 
 
-[^1-5] : Le _Bund der Industriellen_ avait été fondé en 1895 ; le 
+[^1-5]: Le _Bund der Industriellen_ avait été fondé en 1895 ; le 
 _Reichsverband der Deutschen Industrie_ date de 1919. 
 
-[^1-6] : Cabinet Max de Bade. 
+[^1-6]: Cabinet Max de Bade. 
 
-[^1-7] : Le parti appelé en français « populiste » (parti nationaliste 
+[^1-7]: Le parti appelé en français « populiste » (parti nationaliste 
 modéré).
 
-[^1-8] : Membres de la _Deutsche Volkspartei_, mais de tendance conservatrice, 
+[^1-8]: Membres de la _Deutsche Volkspartei_, mais de tendance conservatrice, 
 comme ils le prouveront en essayant de créer en mars 1924 une association 
 nationale-libérale nettement orientée à droite et adversaire de toute 
 collaboration avec les socialistes. (Note des Tr.)

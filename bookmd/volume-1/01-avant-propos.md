@@ -148,7 +148,7 @@ _Les éditeurs français ont cru devoir supprimer des passages ou même des
 fragments entiers, qui leur ont paru de moindre importance, soit parce qu’ils 
 traitaient de pure politique intérieure allemande, soit parce qu’ils 
 constituaient des redites. Ces suppressions ont permis de concentrer 
-sufiîsamment l’intérêt pour qu’il n’y eût pas d’impossibilité a 
+suffisamment l’intérêt pour qu’il n’y eût pas d’impossibilité a 
 conserver, plus souvent que dans l’édition allemande, l’ordre 
 chronologique des divers textes.
 
