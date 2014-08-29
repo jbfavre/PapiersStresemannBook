@@ -971,46 +971,45 @@ d’exploration.
 ---
 
 [^1-1]: Le lecteur trouvera des extraits de ce long _curriculum_, véritable 
-confession du jeune Stresemann, dans l’ouvrage du baron von Rheinbaben 
-(_Stresemann, der Mensch und Staatsmann_, Dresde, 1930). — Gustave Stresemann 
-naquit le 10 mai 1878 à Berlin, dans un quartier populaire 
-(Köpenickerstrasse). Son père tenait un cabaret et était en outre 
-_Bierverleger_, c’est-à-dire vendait de la bière au dehors. De son origine 
-modeste Stresemann garda toujours une certaine antipathie pour les gros 
-industriels et financiers, des goûts démocratiques, excités d’ailleurs 
-aussi par la lecture des romans de Spielhagen. De sa première jeunesse, 
-plutôt solitaire et très studieuse, il conserva, bien que graduellement 
-affaiblis, certains besoins d’imagination et de pensée spéculative (Note 
-des Tr.).
+        confession du jeune Stresemann, dans l’ouvrage du baron von Rheinbaben 
+        (_Stresemann, der Mensch und Staatsmann_, Dresde, 1930). — Gustave 
+        Stresemann naquit le 10 mai 1878 à Berlin, dans un quartier populaire 
+        (Köpenickerstrasse). Son père tenait un cabaret et était en outre 
+        _Bierverleger_, c’est-à-dire vendait de la bière au dehors. De son origine 
+        modeste Stresemann garda toujours une certaine antipathie pour les gros 
+        industriels et financiers, des goûts démocratiques, excités d’ailleurs 
+        aussi par la lecture des romans de Spielhagen. De sa première jeunesse, 
+        plutôt solitaire et très studieuse, il conserva, bien que graduellement 
+        affaiblis, certains besoins d’imagination et de pensée spéculative (Note 
+        des Tr.).
 
 [^1-2]: Association protestante fondée à Eisenach en 1865, de tendance 
-libérale et moderniste. (Note des Tr.) 
+        libérale et moderniste. (Note des Tr.) 
 
 [^1-3]: Sociétés d’étudiants portant couleurs, obéissant aux règles 
-très strictes d’un code d’honneur, et de tendances très conservatrices. 
-(Note des Tr.) 
+        très strictes d’un code d’honneur, et de tendances très conservatrices. 
+        (Note des Tr.) 
 
 [^1-4]: En août 1923, Stresemann écrivait les lignes suivantes : 
-« Quelques semaines avant que les événements politiques m’eussent fait 
-devenir chancelier, j’ai profité de quelques heures de loisir, à Hombourg, 
-pour rédiger un chapitre de mon autobiographie. J’ai mentionné en 
-particulier mon attitude à l’égard des _Burschenschaften_ unies dans 
-l’_Allgemeiner Deutscher Burschenbund_. C’est pendant mes années 
-d’étudiant que j’ai noué mes premières amitiés, appris à travailler 
-avec d’autres, et peut-être appris à conduire d’autres hommes ». 
-C’est ce fragment d’autobiographie que nous venons de mettre sous les yeux 
-du lecteur, et c’est tout ce que Stresemann a rédigé de l’histoire de sa 
-vie ; sa mort prématurée l’empêcha d’en écrire davantage. 
+        « Quelques semaines avant que les événements politiques m’eussent fait 
+        devenir chancelier, j’ai profité de quelques heures de loisir, à Hombourg, 
+        pour rédiger un chapitre de mon autobiographie. J’ai mentionné en 
+        particulier mon attitude à l’égard des _Burschenschaften_ unies dans 
+        l’_Allgemeiner Deutscher Burschenbund_. C’est pendant mes années 
+        d’étudiant que j’ai noué mes premières amitiés, appris à travailler 
+        avec d’autres, et peut-être appris à conduire d’autres hommes ». 
+        C’est ce fragment d’autobiographie que nous venons de mettre sous les yeux 
+        du lecteur, et c’est tout ce que Stresemann a rédigé de l’histoire de sa 
+        vie ; sa mort prématurée l’empêcha d’en écrire davantage. 
 
 [^1-5]: Le _Bund der Industriellen_ avait été fondé en 1895 ; le 
-_Reichsverband der Deutschen Industrie_ date de 1919. 
+        _Reichsverband der Deutschen Industrie_ date de 1919. 
 
 [^1-6]: Cabinet Max de Bade. 
 
-[^1-7]: Le parti appelé en français « populiste » (parti nationaliste 
-modéré).
+[^1-7]: Le parti appelé en français « populiste » (parti nationaliste modéré).
 
 [^1-8]: Membres de la _Deutsche Volkspartei_, mais de tendance conservatrice, 
-comme ils le prouveront en essayant de créer en mars 1924 une association 
-nationale-libérale nettement orientée à droite et adversaire de toute 
-collaboration avec les socialistes. (Note des Tr.)
+        comme ils le prouveront en essayant de créer en mars 1924 une association 
+        nationale-libérale nettement orientée à droite et adversaire de toute 
+        collaboration avec les socialistes. (Note des Tr.)
