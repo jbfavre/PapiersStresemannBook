@@ -1238,11 +1238,11 @@ serait accommodante sur la question de l’indemnité de guerre. Pour nous la
 question politique prime les considérations économiques. Pour la liberté du 
 Rhin, de la Ruhr et de la Sarre des sacrifices économiques, si tant est 
 qu’il faille en faire, ne seront jamais trop durs. La limite en sera donnée 
-par le dicton antique : _Ultra passe nemo obligatur_ [^ Locution latine dont 
-l’équivalent français est _ À l’impossible, nul n’est tenu_]. Mais 
-c’est à cette limite que devront tendre toutes les forces de notre pays, et 
-celles-ci produiront d’autant plus, que nous aurons créé plus tôt une 
-stabilité politique et économique.
+par le dicton antique : _Ultra posse nemo obligatur_ [^ Locution latine 
+signifiant _ À l’impossible, nul n’est tenu_]. Mais c’est à cette limite que
+devront tendre toutes les forces de notre pays, et celles-ci produiront
+d’autant plus, que nous aurons créé plus tôt une stabilité politique et
+économique.
 
 Reste à savoir, je le répète, si ce sont bien des satisfactions économiques 
 que désire la France. Il y a aussi la question de la sécurité. Nous devons 
