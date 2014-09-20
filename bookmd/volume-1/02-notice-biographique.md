@@ -8,7 +8,7 @@ présenta Gustave Stresemann, élève de l’Andreas-Realgymnasium à Berlin,
 il n’était pas dit, comme on pourrait le penser d’après la suite de sa 
 carrière, que cet élève se destinait à l’étude de l’économie 
 politique ; le jeune Stresemann exprimait au contraire son intention de 
-s’adonner à la littérature et à l’histoire [^1-1].
+s’adonner à la littérature et à l’histoire [^0-1].
 
 Schopenhauer a dit quelque part que les hommes qui s’intéressent 
 particulièrement à la littérature sont d’ordinaire mauvais 
@@ -27,7 +27,7 @@ bacheliers qui quittèrent ce lycée en 1897 constituèrent ce qu’on appela,
 était très attaché à l’orthodoxie protestante, et souvent ses élèves ne 
 furent guère d’accord avec lui dans les questions religieuses. Dans son 
 _curriculum vitæ_, Stresemann note qu’il a assisté à un congrès du 
-« _Deutscher Protestantenverein_ » [^1-2] et qu’il ne croit pas qu’un 
+« _Deutscher Protestantenverein_ » [^0-2] et qu’il ne croit pas qu’un 
 dogmatisme rigide soit propice au développement de l’église luthérienne. 
 Au moment de laisser les jeunes bacheliers quitter le lycée, le professeur 
 Hamman fit, avec beaucoup de délicatesse, allusion à cette révolte 
@@ -86,7 +86,7 @@ naturellement avoir le désir de choisir des occupations qui lui permettraient
 de vivre dans ce même monde de pensées, avec des jeunes gens partageant ses 
 goûts. La _Burschenschaft_ ne devait pas manquer de l’attirer, mais elle 
 s’était bien transformée depuis le début du siècle. On avait vu plusieurs 
-de ses membres se rendre avec des Korps [^1-3] au-devant de l’agitateur 
+de ses membres se rendre avec des Korps [^0-3] au-devant de l’agitateur 
 antisémite Ahlwardt à la porte de Brandebourg, et lui faire cortège à son 
 entrée dans Berlin. Cette _Burschenschaft_ devenait infidèle à ses anciennes 
 traditions. Elle s’attachait à de pures formes. Ses membres se 
@@ -970,7 +970,7 @@ d’exploration.
 
 ---
 
-[^1-1]: Le lecteur trouvera des extraits de ce long _curriculum_, véritable 
+[^0-1]: Le lecteur trouvera des extraits de ce long _curriculum_, véritable 
         confession du jeune Stresemann, dans l’ouvrage du baron von Rheinbaben 
         (_Stresemann, der Mensch und Staatsmann_, Dresde, 1930). — Gustave 
         Stresemann naquit le 10 mai 1878 à Berlin, dans un quartier populaire 
@@ -983,10 +983,10 @@ d’exploration.
         affaiblis, certains besoins d’imagination et de pensée spéculative (Note 
         des Tr.).
 
-[^1-2]: Association protestante fondée à Eisenach en 1865, de tendance 
+[^0-2]: Association protestante fondée à Eisenach en 1865, de tendance 
         libérale et moderniste. (Note des Tr.) 
 
-[^1-3]: Sociétés d’étudiants portant couleurs, obéissant aux règles 
+[^0-3]: Sociétés d’étudiants portant couleurs, obéissant aux règles 
         très strictes d’un code d’honneur, et de tendances très conservatrices. 
         (Note des Tr.) 
 

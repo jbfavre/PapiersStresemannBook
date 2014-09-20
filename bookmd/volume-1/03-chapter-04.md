@@ -9,57 +9,57 @@ franco-allemandes :
 ## Inquiétudes et espérances Allemandes
 
 > Le financement des contrats de la Micum soit par l’industrie allemande, 
-soit par le gouvernement lui-même, est impossible. Nous l’avons déclaré en 
-avril. Le public allemand ne se rend pas suffisamment compte des graves 
-conséquences qu’aurait pour nous une prolongation indéfinie de ces 
-contrats. Beaucoup de gens chez nous prétendent qu’actuellement notre peuple 
-ne supporte pas de charges et reprochent au gouvernement je ne sais quelle 
-mollesse féminine, qui le disposerait à accepter des arrangements nouveaux, 
-pour jeter des trésors aux pieds de nos adversaires. En réalité les contrats 
-de la Micum nous arrachent nos dernières ressources en fait de matières 
-premières et nous ruinent. C’est pourquoi nous avions l’intention de dire 
-au président de la Micum, M. Frantzen, que les menaces de sanctions ne nous 
-effraient plus, que nous étions à bout de ressources, que nous ne savions 
-plus comment nos entreprises, jugulées par ces contrats, pourraient se 
-relever. Le gouvernement et les industriels étaient d’accord pour déclarer 
-que nous n’acceptons plus la prolongation de ces contrats. Si nous n’avons 
-pas fait cette déclaration, mais prolongé au contraire les contrats 
-jusqu’au 30 juin, c’est qu’entre temps nous avons appris que la 
-Commission des réparations avait accepté le plan des experts, et qu’une 
-solution complète de la question des réparations est en vue. Nous imaginons 
-d’ailleurs la combinaison suivante : les livraisons faites en vertu des 
-contrats de la Micum à partir du 16 juin et jusqu’à la mise en vigueur du 
-plan des experts seraient décomptées des 200 millions de marks-or que, 
-d’après le plan des experts, nous aurons à verser comme première 
-indemnité.
+  soit par le gouvernement lui-même, est impossible. Nous l’avons déclaré en 
+  avril. Le public allemand ne se rend pas suffisamment compte des graves 
+  conséquences qu’aurait pour nous une prolongation indéfinie de ces 
+  contrats. Beaucoup de gens chez nous prétendent qu’actuellement notre peuple 
+  ne supporte pas de charges et reprochent au gouvernement je ne sais quelle 
+  mollesse féminine, qui le disposerait à accepter des arrangements nouveaux, 
+  pour jeter des trésors aux pieds de nos adversaires. En réalité les contrats 
+  de la Micum nous arrachent nos dernières ressources en fait de matières 
+  premières et nous ruinent. C’est pourquoi nous avions l’intention de dire 
+  au président de la Micum, M. Frantzen, que les menaces de sanctions ne nous 
+  effraient plus, que nous étions à bout de ressources, que nous ne savions 
+  plus comment nos entreprises, jugulées par ces contrats, pourraient se 
+  relever. Le gouvernement et les industriels étaient d’accord pour déclarer 
+  que nous n’acceptons plus la prolongation de ces contrats. Si nous n’avons 
+  pas fait cette déclaration, mais prolongé au contraire les contrats 
+  jusqu’au 30 juin, c’est qu’entre temps nous avons appris que la 
+  Commission des réparations avait accepté le plan des experts, et qu’une 
+  solution complète de la question des réparations est en vue. Nous imaginons 
+  d’ailleurs la combinaison suivante : les livraisons faites en vertu des 
+  contrats de la Micum à partir du 16 juin et jusqu’à la mise en vigueur du 
+  plan des experts seraient décomptées des 200 millions de marks-or que, 
+  d’après le plan des experts, nous aurons à verser comme première 
+  indemnité.
 
 > Depuis l’arrivée au pouvoir du nouveau gouvernement français, les 
-négociations avec la Micum ont pris une autre tournure.
+  négociations avec la Micum ont pris une autre tournure.
 
 > Auparavant Frantzen disait toujours à nos délégués : « Je n’accepte 
-aucune discussion ; si vous ne voulez pas prolonger nos contrats jusqu’à 
-la mise en vigueur du plan des experts, je ferai jouer les sanctions. » Nous 
-nous sommes adressés alors au directeur des Affaires politiques, Peretti della 
-Rocca, en lui rappelant que Herriot s’est déclaré désireux de régler 
-aussi la question des contrats de la Micum. Frantzen promettait à nos 
-délégués d’en référer à Paris, mais il ne cédait pas ; il fit même 
-le geste d’ouvrir son tiroir et d’en tirer une lettre contenant soi-disant 
-des instructions du gouvernement français conformes à ses dires ; en 
-réalité il avait bien reçu des instructions de Paris, mais elles lui 
-prescrivaient de se montrer conciliant et de réclamer la prolongation des 
-contrats de la Micum non jusqu’à la mise en vigueur du plan Dawes, mais 
-seulement jusqu’au 30 juin, le temps d’amorcer de nouvelles négociations. 
-C’est dans l’attente de ces dernières que nous avons accepté la 
-prolongation jusqu’au 30 juin. Frantzen ne s’est pas déclaré d’accord, 
-mais des informations reçues par téléphone nous ont permis de mettre au 
-courant le directeur général Vögler. D’ici le 30 juin nous négocierons 
-dans le sens de la combinaison dont je viens de parler. Du fait que Paris a 
-accepté la prolongation jusqu’au 30 juin seulement, comme nous le 
-désirions, je conclus que le gouvernement français va abandonner le système 
-consistant à pressurer, sans égard à tous les contrats privés, une province 
-soumise à l’occupation ; sans cela il aurait appuyé Frantzen, tandis 
-qu’il l’a nettement désavoué. Il faut que nous nous dégagions de ce 
-système de la Micum, qui nous crée les pires embarras économiques et sociaux.
+  aucune discussion ; si vous ne voulez pas prolonger nos contrats jusqu’à 
+  la mise en vigueur du plan des experts, je ferai jouer les sanctions. » Nous 
+  nous sommes adressés alors au directeur des Affaires politiques, Peretti della 
+  Rocca, en lui rappelant que Herriot s’est déclaré désireux de régler 
+  aussi la question des contrats de la Micum. Frantzen promettait à nos 
+  délégués d’en référer à Paris, mais il ne cédait pas ; il fit même 
+  le geste d’ouvrir son tiroir et d’en tirer une lettre contenant soi-disant 
+  des instructions du gouvernement français conformes à ses dires ; en 
+  réalité il avait bien reçu des instructions de Paris, mais elles lui 
+  prescrivaient de se montrer conciliant et de réclamer la prolongation des 
+  contrats de la Micum non jusqu’à la mise en vigueur du plan Dawes, mais 
+  seulement jusqu’au 30 juin, le temps d’amorcer de nouvelles négociations. 
+  C’est dans l’attente de ces dernières que nous avons accepté la 
+  prolongation jusqu’au 30 juin. Frantzen ne s’est pas déclaré d’accord, 
+  mais des informations reçues par téléphone nous ont permis de mettre au 
+  courant le directeur général Vögler. D’ici le 30 juin nous négocierons 
+  dans le sens de la combinaison dont je viens de parler. Du fait que Paris a 
+  accepté la prolongation jusqu’au 30 juin seulement, comme nous le 
+  désirions, je conclus que le gouvernement français va abandonner le système 
+  consistant à pressurer, sans égard à tous les contrats privés, une province 
+  soumise à l’occupation ; sans cela il aurait appuyé Frantzen, tandis 
+  qu’il l’a nettement désavoué. Il faut que nous nous dégagions de ce 
+  système de la Micum, qui nous crée les pires embarras économiques et sociaux.
 
 Stresemann exprime l’espoir que l’adoption du plan Dawes signifiera pour le 
 gouvernement français l’abandon de la manière forte et de la politique des 
@@ -67,40 +67,40 @@ gages ; il s’attend à voir les personnes arrêtées dans la Ruhr ou
 expulsées bénéficier d’une amnistie générale, et continue ainsi :
 
 > Le nouveau gouvernement français a inspiré chez nous certaines 
-inquiétudes. Il est tout naturel, et nous en avons déjà eu des preuves, 
-qu’un gouvernement soit d’autant plus strict en matière de limitation des 
-armements qu’il est orienté plus à gauche. Or, nous avons précisément en 
-face de nous un cabinet de gauche, et vous savez notamment qu’on justifie le 
-choix du général Nollet comme ministre de la Guerre, en disant qu’il est un 
-des partisans les plus énergiques du service d’un an. Mais en compensation 
-de difficultés possibles en matière militaire, nous avons lieu de penser que 
-le nouveau cabinet tient vraiment à liquider l’affaire de la Ruhr. Voyez 
-cette lutte acharnée autour de Millerand. En France on voit en Millerand 
-l’homme responsable de l’invasion de la Ruhr. Ce n’était pas Poincaré, 
-hostile d’abord à cette opération, ni Foch, également hostile au début, 
-mais Millerand seul qui a tout mis en œuvre pour abattre notre industrie et la 
-mettre à la merci de la grosse industrie française, et il avait espéré que 
-pour cela il suffirait de trois jours. L’énergie avec laquelle Herriot a 
-demandé la tête de Millerand nous permet d’espérer un revirement de 
-situation.
+  inquiétudes. Il est tout naturel, et nous en avons déjà eu des preuves, 
+  qu’un gouvernement soit d’autant plus strict en matière de limitation des 
+  armements qu’il est orienté plus à gauche. Or, nous avons précisément en 
+  face de nous un cabinet de gauche, et vous savez notamment qu’on justifie le 
+  choix du général Nollet comme ministre de la Guerre, en disant qu’il est un 
+  des partisans les plus énergiques du service d’un an. Mais en compensation 
+  de difficultés possibles en matière militaire, nous avons lieu de penser que 
+  le nouveau cabinet tient vraiment à liquider l’affaire de la Ruhr. Voyez 
+  cette lutte acharnée autour de Millerand. En France on voit en Millerand 
+  l’homme responsable de l’invasion de la Ruhr. Ce n’était pas Poincaré, 
+  hostile d’abord à cette opération, ni Foch, également hostile au début, 
+  mais Millerand seul qui a tout mis en œuvre pour abattre notre industrie et la 
+  mettre à la merci de la grosse industrie française, et il avait espéré que 
+  pour cela il suffirait de trois jours. L’énergie avec laquelle Herriot a 
+  demandé la tête de Millerand nous permet d’espérer un revirement de 
+  situation.
 
 > J’arrive ainsi à la question décisive, celle de l’évacuation du bassin 
-de la Ruhr. À lire les déclarations faites jusqu’ici par Herriot, je ne 
-vois pas qu’il ait dit déjà que l’occupation militaire cessera le jour 
-où le plan des experts entrera en vigueur. Ses propos ont été pleins de 
-fleurs de rhétorique. Il a dit que d’abord le plan Dawes devait être admis 
-et que l’évacuation viendrait ensuite. J’ai répliqué que nous avons 
-besoin d’une assurance, d’une précision, qu’une date d’évacuation 
-soit fixée une fois pour toutes, et soit liée nettement à tel ou tel 
-versement que nous aurons effectué Les négociations avec la France vont 
-commencer maintenant seulement. Négocier avec Poincaré était sans 
-intérêt ; nous savions que cela n’aboutissait à rien. Tel était aussi 
-l’avis de l’Angleterre. À un moment donné nous avons voulu tenter quelque 
-chose, mais l’Angleterre nous a dit que nous ferions bien de ne pas nous 
-exposer à recevoir de Poincaré une réponse négative, que nous devrions 
-attendre l’arrivée de son successeur. Qu’avons-nous à présent à 
-attendre de Herriot ? Nous le saurons par sa déclaration d’aujourd’hui, 
-la première qu’il fait au Parlement comme président du Conseil.
+  de la Ruhr. À lire les déclarations faites jusqu’ici par Herriot, je ne 
+  vois pas qu’il ait dit déjà que l’occupation militaire cessera le jour 
+  où le plan des experts entrera en vigueur. Ses propos ont été pleins de 
+  fleurs de rhétorique. Il a dit que d’abord le plan Dawes devait être admis 
+  et que l’évacuation viendrait ensuite. J’ai répliqué que nous avons 
+  besoin d’une assurance, d’une précision, qu’une date d’évacuation 
+  soit fixée une fois pour toutes, et soit liée nettement à tel ou tel 
+  versement que nous aurons effectué Les négociations avec la France vont 
+  commencer maintenant seulement. Négocier avec Poincaré était sans 
+  intérêt ; nous savions que cela n’aboutissait à rien. Tel était aussi 
+  l’avis de l’Angleterre. À un moment donné nous avons voulu tenter quelque 
+  chose, mais l’Angleterre nous a dit que nous ferions bien de ne pas nous 
+  exposer à recevoir de Poincaré une réponse négative, que nous devrions 
+  attendre l’arrivée de son successeur. Qu’avons-nous à présent à 
+  attendre de Herriot ? Nous le saurons par sa déclaration d’aujourd’hui, 
+  la première qu’il fait au Parlement comme président du Conseil.
 
 Le 19 juin, dans un discours prononcé à Dessau, Stresemann commente le 
 programme dont le gouvernement français a donné lecture au Parlement le 17 
@@ -119,25 +119,25 @@ gouvernement français « sans prévention et sans illusion ».
 ### Note de Stresemann (20 juin)
 
 > L’ambassadeur de France est venu me voir, pour me dire qu’il avait reçu 
-une lettre de M. Herriot, exprimant l’intention de ce dernier de mettre 
-sans retard à exécution sa promesse d’amnistie. L’ambassadeur était 
-chargé de me faire connaître que M. Tirard et le général Degoutte 
-viennent de recevoir des instructions à ce sujet, mais en outre il venait me 
-transmettre une prière du premier ministre français. L’amnistie sera pleine 
-et entière, mais le président du Conseil serait reconnaissant au gouvernement 
-allemand d’accorder une amnistie pareille aux Allemands poursuivis ou déjà 
-condamnés pour s’être conformés pendant la bataille de la Ruhr aux 
-ordonnances françaises.
+  une lettre de M. Herriot, exprimant l’intention de ce dernier de mettre 
+  sans retard à exécution sa promesse d’amnistie. L’ambassadeur était 
+  chargé de me faire connaître que M. Tirard et le général Degoutte 
+  viennent de recevoir des instructions à ce sujet, mais en outre il venait me 
+  transmettre une prière du premier ministre français. L’amnistie sera pleine 
+  et entière, mais le président du Conseil serait reconnaissant au gouvernement 
+  allemand d’accorder une amnistie pareille aux Allemands poursuivis ou déjà 
+  condamnés pour s’être conformés pendant la bataille de la Ruhr aux 
+  ordonnances françaises.
 
 > J’ai répondu à l’ambassadeur que j’étais extrêmement reconnaissant 
-au président du Conseil de sa notification et convaincu que son initiative 
-était de bon augure pour l’établissement de relations confiantes entre les 
-deux pays ; que quant à la prière du président du Conseil, j’étais 
-personnellement tout disposé à m’employer pour la satisfaire, que pour 
-l’instant je ne pouvais pas savoir à combien de personnes la mesure 
-demandée s’appliquerait, que le chancelier et moi ne pouvions d’ailleurs 
-pas trancher seuls la question, parce qu’il s’agissait de décisions 
-intéressant deux des pays fédérés, la Prusse et la Bavière.
+  au président du Conseil de sa notification et convaincu que son initiative 
+  était de bon augure pour l’établissement de relations confiantes entre les 
+  deux pays ; que quant à la prière du président du Conseil, j’étais 
+  personnellement tout disposé à m’employer pour la satisfaire, que pour 
+  l’instant je ne pouvais pas savoir à combien de personnes la mesure 
+  demandée s’appliquerait, que le chancelier et moi ne pouvions d’ailleurs 
+  pas trancher seuls la question, parce qu’il s’agissait de décisions 
+  intéressant deux des pays fédérés, la Prusse et la Bavière.
 
 ## Franc-maçonnerie et politique
 
@@ -152,53 +152,53 @@ cette atmosphère calme, pour le recueillement et le travail de la pensée.
 ### Lettre de Stresemann, du 26 juin, au pasteur K. Habicht, à Berlin
 
 > Le discours qui a été prononcé hier à l’occasion de la fête de la 
-Saint-Jean à la Grande Loge aux Trois Globes me suggère les remarques 
-suivantes :
+  Saint-Jean à la Grande Loge aux Trois Globes me suggère les remarques 
+  suivantes :
 
 > J’ai toujours été d’avis que cette plus grande des fêtes maçonniques 
-devait être sans rapport avec la politique et qu’on devait s’abstenir de 
-faire intervenir les discussions politiques actuelles dans nos spéculations 
-sur les grandes idées morales de la franc-maçonnerie. À cet égard, j’ai 
-été complètement déçu hier. Je n’ai pas entendu comment s’appelait 
-l’orateur, je ne le connais pas et par conséquent ne suis aucunement 
-prévenu contre lui. Mais je suis obligé de protester contre son discours. 
-Tout d’abord à cause de sa tendance générale. C’était un discours 
-politique et de parti, qui se concevait peut-être comme discours électoral en 
-d’autres circonstances, mais qui n’était pas à sa place à la Loge. 
-L’orateur a parlé d’ailleurs de choses qu’il ne semblait guère 
-connaître, comme le plan des experts. Il l’a présenté de telle sorte, 
-qu’il semble que le gouvernement allemand, en l’acceptant, va admettre 
-comme vrai ce que nos adversaires disent de notre culpabilité dans la genèse 
-de la guerre. Je n’entre pas dans le fond de la question, mais je déclare 
-expressément qu’il faut n’avoir pas lu de près le rapport des experts 
-pour avancer une pareille affirmation.
+  devait être sans rapport avec la politique et qu’on devait s’abstenir de 
+  faire intervenir les discussions politiques actuelles dans nos spéculations 
+  sur les grandes idées morales de la franc-maçonnerie. À cet égard, j’ai 
+  été complètement déçu hier. Je n’ai pas entendu comment s’appelait 
+  l’orateur, je ne le connais pas et par conséquent ne suis aucunement 
+  prévenu contre lui. Mais je suis obligé de protester contre son discours. 
+  Tout d’abord à cause de sa tendance générale. C’était un discours 
+  politique et de parti, qui se concevait peut-être comme discours électoral en 
+  d’autres circonstances, mais qui n’était pas à sa place à la Loge. 
+  L’orateur a parlé d’ailleurs de choses qu’il ne semblait guère 
+  connaître, comme le plan des experts. Il l’a présenté de telle sorte, 
+  qu’il semble que le gouvernement allemand, en l’acceptant, va admettre 
+  comme vrai ce que nos adversaires disent de notre culpabilité dans la genèse 
+  de la guerre. Je n’entre pas dans le fond de la question, mais je déclare 
+  expressément qu’il faut n’avoir pas lu de près le rapport des experts 
+  pour avancer une pareille affirmation.
 
 > En outre l’orateur a présenté un exposé de notre situation politique 
-aussi étroit et partial que possible. À Weimar j’ai voté contre 
-l’acceptation du traité de Versailles, mais j’estime qu’on n’a pas le 
-droit de critiquer avec cette violence les hommes qui, au milieu de douloureux 
-conflits moraux, ont voté pour, en particulier les délégués des territoires 
-maintenant occupés, que l’orateur a présentés comme des gens sans honneur. 
-Je proteste en outre, comme membre du gouvernement, contre l’audace de 
-l’orateur, qui s’est moqué de « la très haute sagesse » de ces 
-messieurs du gouvernement, et je désirerais savoir si le texte de ce discours, 
-contenant de pareilles tournures, a été préalablement soumis au bureau, et 
-si ce dernier l’approuve. Je ne puis pas laisser dire non plus que ce soient 
-des hommes de sang non allemand qui exercent chez nous une influence 
-prépondérante, et je ne puis pas admettre que l’on ait prêché ainsi au 
-nom du racisme, de telle sorte que les personnes présentes ont eu 
-l’impression d’assister à une réunion électorale du parti raciste.
+  aussi étroit et partial que possible. À Weimar j’ai voté contre 
+  l’acceptation du traité de Versailles, mais j’estime qu’on n’a pas le 
+  droit de critiquer avec cette violence les hommes qui, au milieu de douloureux 
+  conflits moraux, ont voté pour, en particulier les délégués des territoires 
+  maintenant occupés, que l’orateur a présentés comme des gens sans honneur. 
+  Je proteste en outre, comme membre du gouvernement, contre l’audace de 
+  l’orateur, qui s’est moqué de « la très haute sagesse » de ces 
+  messieurs du gouvernement, et je désirerais savoir si le texte de ce discours, 
+  contenant de pareilles tournures, a été préalablement soumis au bureau, et 
+  si ce dernier l’approuve. Je ne puis pas laisser dire non plus que ce soient 
+  des hommes de sang non allemand qui exercent chez nous une influence 
+  prépondérante, et je ne puis pas admettre que l’on ait prêché ainsi au 
+  nom du racisme, de telle sorte que les personnes présentes ont eu 
+  l’impression d’assister à une réunion électorale du parti raciste.
 
 > Si je n’ai pas protesté publiquement, c’est uniquement en considération 
-du lieu de la fête. Mais je vous prie de me faire connaître si, tant à moi 
-qu’aux personnes qui se trouvaient de mon avis, et qui étaient en grand 
-nombre, occasion sera donnée de nous élever contre une pareille manière de 
-ravaler la Loge au rang de salle de réunion politique. Je voudrais savoir 
-aussi si le bureau de la Loge a la possibilité de donner aux francs-maçons 
-qui ont des idées libérales une assurance quelconque d’être mis 
-dorénavant à l’abri de pareilles attaques dirigées contre leurs 
-conceptions morales. Le cas échéant, je vous prie d’inviter la Loge à 
-délibérer sur les faits ci-dessus.
+  du lieu de la fête. Mais je vous prie de me faire connaître si, tant à moi 
+  qu’aux personnes qui se trouvaient de mon avis, et qui étaient en grand 
+  nombre, occasion sera donnée de nous élever contre une pareille manière de 
+  ravaler la Loge au rang de salle de réunion politique. Je voudrais savoir 
+  aussi si le bureau de la Loge a la possibilité de donner aux francs-maçons 
+  qui ont des idées libérales une assurance quelconque d’être mis 
+  dorénavant à l’abri de pareilles attaques dirigées contre leurs 
+  conceptions morales. Le cas échéant, je vous prie d’inviter la Loge à 
+  délibérer sur les faits ci-dessus.
 
 ## L’acte final du contrôle militaire en Allemagne
 
@@ -222,90 +222,90 @@ convoque les journalistes étrangers et commente ainsi le contenu de cette
 réponse :
 
 > Nous précisons au début de notre note que nous ne voulons pas compliquer la 
-présente situation internationale au moment où est en vue le règlement 
-définitif de la question des réparations. Puis nous parlons de l’activité 
-des sociétés patriotiques allemandes. Nous considérons d’abord les 
-sociétés de gymnastique et de sport. Nous rappelons que nous avons eu en 
-Allemagne le service militaire obligatoire, qui n’avait pas seulement pour 
-but de nous donner une armée, mais qui était à nos yeux une institution 
-propre à l’éducation de la jeunesse, ce qui est d’ailleurs maintenant 
-encore notre avis. Si le maintien du service militaire obligatoire nous est 
-refusé, nous avons le devoir de chercher à conserver par un autre moyen une 
-jeunesse robuste, et par conséquent nous nous déclarons nettement amis de 
-toutes les organisations sportives. Nous ne faisons d’ailleurs que suivre un 
-exemple donné depuis longtemps par l’Angleterre et l’Amérique. Les 
-exercices sportifs sont chez nous maintenant l’objet d’un certain 
-emballement, mais ce fait n’a rien à voir avec les questions militaires.
+  présente situation internationale au moment où est en vue le règlement 
+  définitif de la question des réparations. Puis nous parlons de l’activité 
+  des sociétés patriotiques allemandes. Nous considérons d’abord les 
+  sociétés de gymnastique et de sport. Nous rappelons que nous avons eu en 
+  Allemagne le service militaire obligatoire, qui n’avait pas seulement pour 
+  but de nous donner une armée, mais qui était à nos yeux une institution 
+  propre à l’éducation de la jeunesse, ce qui est d’ailleurs maintenant 
+  encore notre avis. Si le maintien du service militaire obligatoire nous est 
+  refusé, nous avons le devoir de chercher à conserver par un autre moyen une 
+  jeunesse robuste, et par conséquent nous nous déclarons nettement amis de 
+  toutes les organisations sportives. Nous ne faisons d’ailleurs que suivre un 
+  exemple donné depuis longtemps par l’Angleterre et l’Amérique. Les 
+  exercices sportifs sont chez nous maintenant l’objet d’un certain 
+  emballement, mais ce fait n’a rien à voir avec les questions militaires.
 
 > Il existe d’autres organisations, d’un caractère politique. Nous disons 
-dans notre note que le désarmement de certaines de ces sociétés, qu’il ne 
-faut pas confondre avec les associations sportives, a été la tâche du 
-gouvernement allemand, et qu’à cette tâche il s’est appliqué sans 
-ménagement et avec succès. Aucun homme bien informé ne peut prétendre que 
-ces organisations disposent encore d’un armement sérieux. Un ministre, le 
-mieux placé pour savoir à quoi s’en tenir, a dit avec raison qu’en fait 
-d’armes elles n’ont que des drapeaux et des insignes. Elles ne 
-constitueront pas une menace pour l’ordre intérieur, du moins tant qu’on 
-ne diminuera pas les moyens d’action de notre police, et quant à leurs 
-possibilités au point de vue extérieur, il serait ridicule de les croire 
-capables de mettre le moins du monde la paix en danger. On nous fait remarquer 
-qu’elles se sont livrées plusieurs fois à de retentissantes 
-manifestations ; cela est vrai, mais nous croyons avoir le devoir de 
-répondre que ce qui a permis le développement de ces sociétés, c’est la 
-politique anti-allemande d’après guerre. Si, dès le début, on avait fait 
-avec nous une politique de bonne entente, comme est celle des gouvernements 
-alliés actuels, si on nous avait laissé collaborer sur le pied d’égalité, 
-l’irritation n’aurait pas grandi ainsi en Allemagne. À l’ambassadeur de 
-France, qui me faisait part des inquiétudes de M. Poincaré relativement au 
-mouvement nationaliste en Allemagne, j’ai dit en novembre dernier qu’il ne 
-dépendait que des Alliés d’enrayer ce mouvement. Je crois me rappeler lui 
-avoir déclaré que chaque discours prononcé le dimanche par M. Poincaré 
-faisait gagner cent mille voix aux nationalistes. Je me suis trompé, mais 
-seulement en restant très au-dessous du chiffre juste.
+  dans notre note que le désarmement de certaines de ces sociétés, qu’il ne 
+  faut pas confondre avec les associations sportives, a été la tâche du 
+  gouvernement allemand, et qu’à cette tâche il s’est appliqué sans 
+  ménagement et avec succès. Aucun homme bien informé ne peut prétendre que 
+  ces organisations disposent encore d’un armement sérieux. Un ministre, le 
+  mieux placé pour savoir à quoi s’en tenir, a dit avec raison qu’en fait 
+  d’armes elles n’ont que des drapeaux et des insignes. Elles ne 
+  constitueront pas une menace pour l’ordre intérieur, du moins tant qu’on 
+  ne diminuera pas les moyens d’action de notre police, et quant à leurs 
+  possibilités au point de vue extérieur, il serait ridicule de les croire 
+  capables de mettre le moins du monde la paix en danger. On nous fait remarquer 
+  qu’elles se sont livrées plusieurs fois à de retentissantes 
+  manifestations ; cela est vrai, mais nous croyons avoir le devoir de 
+  répondre que ce qui a permis le développement de ces sociétés, c’est la 
+  politique anti-allemande d’après guerre. Si, dès le début, on avait fait 
+  avec nous une politique de bonne entente, comme est celle des gouvernements 
+  alliés actuels, si on nous avait laissé collaborer sur le pied d’égalité, 
+  l’irritation n’aurait pas grandi ainsi en Allemagne. À l’ambassadeur de 
+  France, qui me faisait part des inquiétudes de M. Poincaré relativement au 
+  mouvement nationaliste en Allemagne, j’ai dit en novembre dernier qu’il ne 
+  dépendait que des Alliés d’enrayer ce mouvement. Je crois me rappeler lui 
+  avoir déclaré que chaque discours prononcé le dimanche par M. Poincaré 
+  faisait gagner cent mille voix aux nationalistes. Je me suis trompé, mais 
+  seulement en restant très au-dessous du chiffre juste.
 
 > Notre note aborde ensuite les questions militaires proprement dites, et nous 
-constatons que pas un militaire ne peut croire que l’Allemagne ait une 
-possibilité quelconque de provoquer en Europe des conflits armés. J’ai 
-introduit dans notre note la mention de deux faits singulièrement probants : 
-le premier, c’est que depuis la fin de la guerre l’Allemagne n’a pas 
-fabriqué un seul canon, alors qu’elle en aurait eu parfaitement le droit ; 
-le second, c’est que notre stock de munitions est inférieur à celui que 
-nous accorde le traité. Je suis curieux de savoir si la partie adverse pourra 
-contester ces faits, qui sont bien la plus convaincante réplique à toutes les 
-sottises qui pour des raisons de politique intérieure sont répétées en 
-France au sujet de notre état d’armement. Nous disons que l’Allemagne est 
-désarmée en ce moment comme aucun État ne l’a été dans l’histoire, et 
-nous sommes obligés de constater que chez les autres nations l’idée de ce 
-désarmement général, dont notre propre désarmement devait être le 
-prélude, n’a guère fait de progrès sérieux.
+  constatons que pas un militaire ne peut croire que l’Allemagne ait une 
+  possibilité quelconque de provoquer en Europe des conflits armés. J’ai 
+  introduit dans notre note la mention de deux faits singulièrement probants : 
+  le premier, c’est que depuis la fin de la guerre l’Allemagne n’a pas 
+  fabriqué un seul canon, alors qu’elle en aurait eu parfaitement le droit ; 
+  le second, c’est que notre stock de munitions est inférieur à celui que 
+  nous accorde le traité. Je suis curieux de savoir si la partie adverse pourra 
+  contester ces faits, qui sont bien la plus convaincante réplique à toutes les 
+  sottises qui pour des raisons de politique intérieure sont répétées en 
+  France au sujet de notre état d’armement. Nous disons que l’Allemagne est 
+  désarmée en ce moment comme aucun État ne l’a été dans l’histoire, et 
+  nous sommes obligés de constater que chez les autres nations l’idée de ce 
+  désarmement général, dont notre propre désarmement devait être le 
+  prélude, n’a guère fait de progrès sérieux.
 
 > La seconde partie de notre note est consacrée à la question particulière 
-de la cessation du contrôle militaire. Nous maintenons, pour une raison de 
-droit [^4-01], que le désarmement est terminé, et qu’à présent c’est la 
-Société des Nations qui devrait, conformément au traité de Versailles, se 
-substituer à la Commission militaire interalliée. Cependant nous avons deux 
-raisons de ne pas revendiquer rigoureusement notre droit. La première est que 
-jusqu’ici nous avions tout lieu de penser que les Alliés voulaient 
-éterniser le contrôle militaire en Allemagne ; maintenant au contraire la 
-note de la Conférence des ambassadeurs du 28 mai et la lettre des deux 
-premiers ministres font voir, sans laisser subsister aucun doute, que les 
-Alliés adoptent le point de vue allemand et considèrent que l’inspection 
-générale de nos armements, qu’ils réclament encore, sera l’acte final du 
-contrôle. La seconde raison est la nouvelle situation internationale, car des 
-efforts sont faits maintenant pour substituer à une politique de contrainte la 
-politique d’entente. Pour ces deux motifs le gouvernement allemand déclare 
-qu’il est prêt à autoriser l’inspection générale. Nous disons dans 
-notre note que nous avons conscience d’imposer une lourde charge au peuple 
-allemand en admettant cette inspection et que, par conséquent, nous supposons 
-qu’une entente préalable aura lieu entre les gouvernements alliés et le 
-gouvernement allemand relativement aux modalités de ce dernier contrôle. Ce 
-dernier point est d’autant plus important que sans cette entente nous ne 
-pouvons pas garantir la sécurité des officiers contrôleurs, et serions 
-obligés de décliner toute responsabilité s’ils étaient victimes 
-d’incidents. Nous pensons enfin, étant donné que les officiers alliés sont 
-parfaitement au courant de leur travail, que cette dernière inspection peut 
-être très vite achevée et nous suggérons qu’elle soit terminée le 30 
-septembre prochain.
+  de la cessation du contrôle militaire. Nous maintenons, pour une raison de 
+  droit [^4-01], que le désarmement est terminé, et qu’à présent c’est la 
+  Société des Nations qui devrait, conformément au traité de Versailles, se 
+  substituer à la Commission militaire interalliée. Cependant nous avons deux 
+  raisons de ne pas revendiquer rigoureusement notre droit. La première est que 
+  jusqu’ici nous avions tout lieu de penser que les Alliés voulaient 
+  éterniser le contrôle militaire en Allemagne ; maintenant au contraire la 
+  note de la Conférence des ambassadeurs du 28 mai et la lettre des deux 
+  premiers ministres font voir, sans laisser subsister aucun doute, que les 
+  Alliés adoptent le point de vue allemand et considèrent que l’inspection 
+  générale de nos armements, qu’ils réclament encore, sera l’acte final du 
+  contrôle. La seconde raison est la nouvelle situation internationale, car des 
+  efforts sont faits maintenant pour substituer à une politique de contrainte la 
+  politique d’entente. Pour ces deux motifs le gouvernement allemand déclare 
+  qu’il est prêt à autoriser l’inspection générale. Nous disons dans 
+  notre note que nous avons conscience d’imposer une lourde charge au peuple 
+  allemand en admettant cette inspection et que, par conséquent, nous supposons 
+  qu’une entente préalable aura lieu entre les gouvernements alliés et le 
+  gouvernement allemand relativement aux modalités de ce dernier contrôle. Ce 
+  dernier point est d’autant plus important que sans cette entente nous ne 
+  pouvons pas garantir la sécurité des officiers contrôleurs, et serions 
+  obligés de décliner toute responsabilité s’ils étaient victimes 
+  d’incidents. Nous pensons enfin, étant donné que les officiers alliés sont 
+  parfaitement au courant de leur travail, que cette dernière inspection peut 
+  être très vite achevée et nous suggérons qu’elle soit terminée le 30 
+  septembre prochain.
 
 Stresemann conclut en insistant sur les difficultés avec lesquelles le 
 gouvernement allemand est aux prises ; l’inspection générale va provoquer 
@@ -321,100 +321,100 @@ confiance et courage à l’Allemagne [^4-2].
 Bassermann (26 juillet) [^4-3]
 
 > … Revenu du front russe, Bassermann entra dans l’administration en 
-Belgique, puis, sur les instances de ses amis, revint en Allemagne et reprit sa 
-vie politique. Quand il s’agissait de manifester extérieurement sa pensée, 
-il ne parlait jamais que de victoire allemande, mais en son for intérieur il 
-doutait. Que de fois ne m’a-t-il pas dit : « Croyez-moi, il y va de 
-l’Empire et de la couronne ». Il se défiait des diplomates. Il était 
-adversaire de Bethmann, en qui, comme Bülow, il ne voyait pas autre chose que 
-l’excellent élève du pensionnat de Schulpforta. Il n’aimait pas du tout 
-la tendance de l’Empereur à agir de sa propre autorité. Deux fois c’est 
-lui qui, comme chef du parti national-libéral, a interpellé au sujet du 
-régime personnel. Au plus profond de son âme il était monarchiste, mais ce 
-qui était sacré pour lui, c’était la notion de monarchie, non la personne 
-du monarque. Tout ce qui, par des publications de mémoires et souvenirs, nous 
-est révélé maintenant morceau par morceau sur l’époque impériale, il le 
-connaissait trop, l’ayant vu ou en ayant entendu parler, pour avoir confiance 
-en la gestion des affaires par l’Empereur. Il a beaucoup souffert de voir 
-l’Empereur mépriser le Parlement, ne vouloir autour de lui que des 
-courtisans, n’avoir pour de très bons Allemands, parce qu’ils étaient du 
-parti national-libéral, que haussement d’épaules et ce dédain affiché 
-pendant la semaine de Kiel, qui nous laisse un souvenir amer. S’étant rendu 
-en Bulgarie il fut pris à part par le tsar Ferdinand, qui parla longuement 
-avec lui de la situation internationale. Cet entretien lui causa une véritable 
-émotion : « Le roi des Bulgares, dit-il, a le sentiment qu’il lui est 
-nécessaire de s’entretenir de la politique étrangère et de la situation de 
-l’Allemagne avec des chefs politiques allemands, de recevoir leurs 
-suggestions ; tandis que notre Empereur, de sa vie, ne m’a jamais demandé 
-ma façon de voir ». Son pessimisme était malheureusement justifié ; le 
-Reich existe encore, mais les couronnes sont tombées. Elles sont tombées, 
-parce que même au milieu de l’exaltation patriotique du 1^er^ août 1914 on 
-n’a pas su voir grand, parce qu’on attendit pour faire des réformes que 
-l’on y fût forcé, parce qu’on traita la question du droit de vote par de 
-petits moyens. On aurait dû se dire au contraire : Si nous sommes victorieux, 
-le suffrage universel ne nous fera jamais de mal, mais si nous succombons, le 
-mode de suffrage n’a pas grande importance, car il se produira bien 
-d’autres bouleversements. De graves soucis ont assombri les derniers mois de 
-son existence : départ de Bethmann, arrivée de Michælis. Il a été témoin 
-de l’héroïsme de nos troupes, mais aussi de leur vaine lutte contre des 
-masses d’ennemis toujours renouvelées. Il gardait l’espoir de la victoire, 
-il pensait toujours à la grande Allemagne, mais sans certitude, et bien que 
-nous le pleurions aujourd’hui, il faut nous demander s’il n’a pas mieux 
-valu pour lui s’en aller, tandis que la vieille Allemagne tenait fièrement 
-sa place dans le monde, au lieu de rester pour être témoin de ce qui est 
-arrivé ensuite.
+  Belgique, puis, sur les instances de ses amis, revint en Allemagne et reprit sa 
+  vie politique. Quand il s’agissait de manifester extérieurement sa pensée, 
+  il ne parlait jamais que de victoire allemande, mais en son for intérieur il 
+  doutait. Que de fois ne m’a-t-il pas dit : « Croyez-moi, il y va de 
+  l’Empire et de la couronne ». Il se défiait des diplomates. Il était 
+  adversaire de Bethmann, en qui, comme Bülow, il ne voyait pas autre chose que 
+  l’excellent élève du pensionnat de Schulpforta. Il n’aimait pas du tout 
+  la tendance de l’Empereur à agir de sa propre autorité. Deux fois c’est 
+  lui qui, comme chef du parti national-libéral, a interpellé au sujet du 
+  régime personnel. Au plus profond de son âme il était monarchiste, mais ce 
+  qui était sacré pour lui, c’était la notion de monarchie, non la personne 
+  du monarque. Tout ce qui, par des publications de mémoires et souvenirs, nous 
+  est révélé maintenant morceau par morceau sur l’époque impériale, il le 
+  connaissait trop, l’ayant vu ou en ayant entendu parler, pour avoir confiance 
+  en la gestion des affaires par l’Empereur. Il a beaucoup souffert de voir 
+  l’Empereur mépriser le Parlement, ne vouloir autour de lui que des 
+  courtisans, n’avoir pour de très bons Allemands, parce qu’ils étaient du 
+  parti national-libéral, que haussement d’épaules et ce dédain affiché 
+  pendant la semaine de Kiel, qui nous laisse un souvenir amer. S’étant rendu 
+  en Bulgarie il fut pris à part par le tsar Ferdinand, qui parla longuement 
+  avec lui de la situation internationale. Cet entretien lui causa une véritable 
+  émotion : « Le roi des Bulgares, dit-il, a le sentiment qu’il lui est 
+  nécessaire de s’entretenir de la politique étrangère et de la situation de 
+  l’Allemagne avec des chefs politiques allemands, de recevoir leurs 
+  suggestions ; tandis que notre Empereur, de sa vie, ne m’a jamais demandé 
+  ma façon de voir ». Son pessimisme était malheureusement justifié ; le 
+  Reich existe encore, mais les couronnes sont tombées. Elles sont tombées, 
+  parce que même au milieu de l’exaltation patriotique du 1^er^ août 1914 on 
+  n’a pas su voir grand, parce qu’on attendit pour faire des réformes que 
+  l’on y fût forcé, parce qu’on traita la question du droit de vote par de 
+  petits moyens. On aurait dû se dire au contraire : Si nous sommes victorieux, 
+  le suffrage universel ne nous fera jamais de mal, mais si nous succombons, le 
+  mode de suffrage n’a pas grande importance, car il se produira bien 
+  d’autres bouleversements. De graves soucis ont assombri les derniers mois de 
+  son existence : départ de Bethmann, arrivée de Michælis. Il a été témoin 
+  de l’héroïsme de nos troupes, mais aussi de leur vaine lutte contre des 
+  masses d’ennemis toujours renouvelées. Il gardait l’espoir de la victoire, 
+  il pensait toujours à la grande Allemagne, mais sans certitude, et bien que 
+  nous le pleurions aujourd’hui, il faut nous demander s’il n’a pas mieux 
+  valu pour lui s’en aller, tandis que la vieille Allemagne tenait fièrement 
+  sa place dans le monde, au lieu de rester pour être témoin de ce qui est 
+  arrivé ensuite.
 
 > …Des deux idées, nationale et libérale, qu’il défendait selon les 
-circonstances, tantôt traité de réactionnaire parce qu’il votait avec les 
-conservateurs pour l’augmentation des crédits pour l’armée, tantôt 
-raillé par les conservateurs, comme « méridional démocrate », parce 
-qu’il appuyait un projet de réforme sociale, de ces deux idées, dis-je, 
-c’est l’idée nationale qui à ses yeux primait nettement l’autre. 
-N’oublions jamais comme il est intervenu en faveur du dernier projet de loi 
-militaire. Ce n’est pas de sa faute si de mesquines considérations, et la 
-peur des élections nouvelles, ont fait échouer les efforts qui tendaient à 
-nous donner deux corps d’armée de plus, ce qui nous aurait fait gagner la 
-bataille de la Marne. Il y eut, au milieu des débats engagés au sujet de ce 
-dernier projet de loi militaire, un moment que je n’oublierai jamais. Je 
-m’entretenais avec Bassermann, vers minuit. Il me dit ses inquiétudes au 
-sujet de l’armée allemande. Il était convaincu qu’au point de vue de 
-l’artillerie nous étions en retard, que les canons français étaient 
-supérieurs aux nôtres, que nous n’avions pas assez de réserves instruites 
-et que nous ne nous engagerions pas du tout dans la prochaine guerre avec la 
-certitude de vaincre.
+  circonstances, tantôt traité de réactionnaire parce qu’il votait avec les 
+  conservateurs pour l’augmentation des crédits pour l’armée, tantôt 
+  raillé par les conservateurs, comme « méridional démocrate », parce 
+  qu’il appuyait un projet de réforme sociale, de ces deux idées, dis-je, 
+  c’est l’idée nationale qui à ses yeux primait nettement l’autre. 
+  N’oublions jamais comme il est intervenu en faveur du dernier projet de loi 
+  militaire. Ce n’est pas de sa faute si de mesquines considérations, et la 
+  peur des élections nouvelles, ont fait échouer les efforts qui tendaient à 
+  nous donner deux corps d’armée de plus, ce qui nous aurait fait gagner la 
+  bataille de la Marne. Il y eut, au milieu des débats engagés au sujet de ce 
+  dernier projet de loi militaire, un moment que je n’oublierai jamais. Je 
+  m’entretenais avec Bassermann, vers minuit. Il me dit ses inquiétudes au 
+  sujet de l’armée allemande. Il était convaincu qu’au point de vue de 
+  l’artillerie nous étions en retard, que les canons français étaient 
+  supérieurs aux nôtres, que nous n’avions pas assez de réserves instruites 
+  et que nous ne nous engagerions pas du tout dans la prochaine guerre avec la 
+  certitude de vaincre.
 
 > Il avait de fréquentes crises cardiaques, et précisément à ce moment ne 
-se sentait pas très bien ; pourtant tous les dimanches il partait pour faire 
-un discours, à la ville ou à la campagne, et dire combien nous avions besoin 
-d’une forte armée. Si le ministre de la Guerre n’avait pas eu aussi peur 
-de se mettre à dos tous les contribuables rechignants, nous n’aurions pas eu 
-le pauvre compromis que l’on sait.
+  se sentait pas très bien ; pourtant tous les dimanches il partait pour faire 
+  un discours, à la ville ou à la campagne, et dire combien nous avions besoin 
+  d’une forte armée. Si le ministre de la Guerre n’avait pas eu aussi peur 
+  de se mettre à dos tous les contribuables rechignants, nous n’aurions pas eu 
+  le pauvre compromis que l’on sait.
 
 > …S’il était encore de ce monde, quel contraste ce serait pour lui que le 
-souvenir de l’heureuse, florissante et fière Allemagne, opposé au spectacle 
-de notre impuissance au dehors et de notre chaos au dedans ! Tout de même je 
-crois qu’il serait parmi les optimistes. Car il serait trop sûr du renom de 
-l’Allemagne dans le monde pour désespérer de notre avenir. Des hommes dont 
-la curiosité frivole veut toujours être satisfaite demanderaient peut-être 
-si Bassermann serait aujourd’hui pour la droite ou pour la gauche. C’est 
-toujours la question qui préoccupe les petits esprits. Je suis sûr 
-qu’Ernest Bassermann se tiendrait là où il jugerait sa présence 
-nécessaire pour le bien de la nation, fidèle à son devoir, ne faisant au 
-peuple aucune belle promesse impossible à tenir, travaillant honnêtement à 
-aplanir notre route.
+  souvenir de l’heureuse, florissante et fière Allemagne, opposé au spectacle 
+  de notre impuissance au dehors et de notre chaos au dedans ! Tout de même je 
+  crois qu’il serait parmi les optimistes. Car il serait trop sûr du renom de 
+  l’Allemagne dans le monde pour désespérer de notre avenir. Des hommes dont 
+  la curiosité frivole veut toujours être satisfaite demanderaient peut-être 
+  si Bassermann serait aujourd’hui pour la droite ou pour la gauche. C’est 
+  toujours la question qui préoccupe les petits esprits. Je suis sûr 
+  qu’Ernest Bassermann se tiendrait là où il jugerait sa présence 
+  nécessaire pour le bien de la nation, fidèle à son devoir, ne faisant au 
+  peuple aucune belle promesse impossible à tenir, travaillant honnêtement à 
+  aplanir notre route.
 
 > Combien l’homme de qui je parle est mal connu ! Combien affligeantes sont 
-nos disputes, combien faible notre culture politique ! Si nos groupements de 
-jeunes gens patronnés par la _Deutsche Volkspartei_ peuvent faire quelque 
-chose d’utile, ce doit être de s’instruire de l’histoire du parti, de 
-lire la biographie de nos chefs. Un même chemin nous conduit de l’auberge du 
-Sapin, à Iéna, jusqu’à l’église Saint-Paul à Francfort, au 
-_Nationalverein_ de Bennigsen et au 18 janvier 1871 à Versailles. Grande est 
-la part prise par le libéralisme allemand à cette période de l’histoire 
-d’Allemagne. Notre patrie ne devrait pas oublier Ernest Bassermann et notre 
-parti n’a pas le droit de perdre son souvenir ; ceux qui le connaissaient 
-garderont la chère mémoire de ce patriote allemand, de ce chef de parti au 
-noble caractère, de cet ami regretté.
+  nos disputes, combien faible notre culture politique ! Si nos groupements de 
+  jeunes gens patronnés par la _Deutsche Volkspartei_ peuvent faire quelque 
+  chose d’utile, ce doit être de s’instruire de l’histoire du parti, de 
+  lire la biographie de nos chefs. Un même chemin nous conduit de l’auberge du 
+  Sapin, à Iéna, jusqu’à l’église Saint-Paul à Francfort, au 
+  _Nationalverein_ de Bennigsen et au 18 janvier 1871 à Versailles. Grande est 
+  la part prise par le libéralisme allemand à cette période de l’histoire 
+  d’Allemagne. Notre patrie ne devrait pas oublier Ernest Bassermann et notre 
+  parti n’a pas le droit de perdre son souvenir ; ceux qui le connaissaient 
+  garderont la chère mémoire de ce patriote allemand, de ce chef de parti au 
+  noble caractère, de cet ami regretté.
 
 ## Les difficultés de la préparation de la Conférence de Londres
 
@@ -432,98 +432,98 @@ risque de mettre en péril le plan Dawes.
 ### Note de Stresemann (11 juillet)
 
 > Sur ma prière, Lord d’Abernon est venu me voir. Je lui ai fait remarquer 
-que la situation qui nous est faite [^4-4] est impossible. On a d’abord 
-invité l’Allemagne à la Conférence de Londres ; et maintenant on la 
-désinvite en quelque sorte ; cela va faire une très mauvaise impression en 
-Allemagne et fortifier l’opposition. D’autre part on veut que la Commission 
-des réparations exerce de nouveau ses droits relativement aux prétendus 
-manquements de l’Allemagne, ce qui n’est pas admissible. Mais surtout 
-j’ai fait remarquer à l’ambassadeur :
+  que la situation qui nous est faite [^4-4] est impossible. On a d’abord 
+  invité l’Allemagne à la Conférence de Londres ; et maintenant on la 
+  désinvite en quelque sorte ; cela va faire une très mauvaise impression en 
+  Allemagne et fortifier l’opposition. D’autre part on veut que la Commission 
+  des réparations exerce de nouveau ses droits relativement aux prétendus 
+  manquements de l’Allemagne, ce qui n’est pas admissible. Mais surtout 
+  j’ai fait remarquer à l’ambassadeur :
 
 > 1. Il est absolument impossible que nous prenions d’abord nos mesures 
-législatives et qu’on nous laisse attendre ensuite que la haute assemblée 
-qui s’appelle Commission des réparations ait la bonté d’abroger les 
-ordonnances franco-belges. Nous ne pourrions pas faire admettre cela par le 
-Reichstag et quant à moi je me refuse, étant donné le texte très clair du 
-rapport des experts, à laisser renverser ainsi les données du problème.
+  législatives et qu’on nous laisse attendre ensuite que la haute assemblée 
+  qui s’appelle Commission des réparations ait la bonté d’abroger les 
+  ordonnances franco-belges. Nous ne pourrions pas faire admettre cela par le 
+  Reichstag et quant à moi je me refuse, étant donné le texte très clair du 
+  rapport des experts, à laisser renverser ainsi les données du problème.
 
 > 2. La question de l’évacuation de la Ruhr a besoin d’être résolue. Sir 
-Robert Kindersley, avec qui je me suis entretenu, estime que cette évacuation 
-s’impose naturellement et ajoute qu’en fait personne ne songe à prolonger 
-indéfiniment l’occupation, surtout étant donné que ce sont les puissances 
-occupantes qui ont à en faire les frais. Mais dans ces conditions je ne 
-comprends pas pourquoi on ne promet pas franchement l’évacuation. J’ai 
-besoin d’une déclaration à ce sujet, faute de laquelle je ne tiendrai pas 
-le coup au Reichstag. Le cabinet estime que la situation est grosse de 
-catastrophes possibles et que le plan des experts est en péril.
+  Robert Kindersley, avec qui je me suis entretenu, estime que cette évacuation 
+  s’impose naturellement et ajoute qu’en fait personne ne songe à prolonger 
+  indéfiniment l’occupation, surtout étant donné que ce sont les puissances 
+  occupantes qui ont à en faire les frais. Mais dans ces conditions je ne 
+  comprends pas pourquoi on ne promet pas franchement l’évacuation. J’ai 
+  besoin d’une déclaration à ce sujet, faute de laquelle je ne tiendrai pas 
+  le coup au Reichstag. Le cabinet estime que la situation est grosse de 
+  catastrophes possibles et que le plan des experts est en péril.
 
 > Lord d’Abernon m’a dit qu’à son avis il n’est guère probable que 
-l’Allemagne soit invitée à la Conférence de Londres. Il se demande s’il 
-ne serait pas possible aux gouvernements alliés d’informer officiellement 
-l’Allemagne de la Conférence de Londres, en déclarant en même temps que 
-les puissances alliées se mettront en rapport avec l’Allemagne, après la 
-Conférence, pour obtenir son adhésion aux décisions qui auront été prises. 
-Il ne croit d’ailleurs pas que l’Allemagne perdrait beaucoup à n’être 
-pas représentée à Londres ; jusqu’ici toutes les conférences auxquelles 
-elle a pris part ont eu un mauvais destin (Cannes, Londres et Gênes). À son 
-avis on pourrait bien mieux conduire les négociations à Berlin, par voie 
-diplomatique et sous le manteau. Au sujet de mes réserves quant à la 
-Commission des réparations il a été de mon avis et il estime que le retrait 
-des ordonnances doit naturellement avoir lieu avant la mise en vigueur du plan 
-des experts. Relativement à l’évacuation militaire il m’a dit à 
-plusieurs reprises : « Je comprends très bien qu’il vous faut cela pour 
-vous maintenir devant le Reichstag ». Il m’a promis de télégraphier 
-encore à Londres et de bien dire que la libération économique et militaire 
-de la Ruhr est nécessaire pour que notre gouvernement obtienne dans la 
-question du plan des experts le nombre de voix suffisant au Parlement.
+  l’Allemagne soit invitée à la Conférence de Londres. Il se demande s’il 
+  ne serait pas possible aux gouvernements alliés d’informer officiellement 
+  l’Allemagne de la Conférence de Londres, en déclarant en même temps que 
+  les puissances alliées se mettront en rapport avec l’Allemagne, après la 
+  Conférence, pour obtenir son adhésion aux décisions qui auront été prises. 
+  Il ne croit d’ailleurs pas que l’Allemagne perdrait beaucoup à n’être 
+  pas représentée à Londres ; jusqu’ici toutes les conférences auxquelles 
+  elle a pris part ont eu un mauvais destin (Cannes, Londres et Gênes). À son 
+  avis on pourrait bien mieux conduire les négociations à Berlin, par voie 
+  diplomatique et sous le manteau. Au sujet de mes réserves quant à la 
+  Commission des réparations il a été de mon avis et il estime que le retrait 
+  des ordonnances doit naturellement avoir lieu avant la mise en vigueur du plan 
+  des experts. Relativement à l’évacuation militaire il m’a dit à 
+  plusieurs reprises : « Je comprends très bien qu’il vous faut cela pour 
+  vous maintenir devant le Reichstag ». Il m’a promis de télégraphier 
+  encore à Londres et de bien dire que la libération économique et militaire 
+  de la Ruhr est nécessaire pour que notre gouvernement obtienne dans la 
+  question du plan des experts le nombre de voix suffisant au Parlement.
 
 ### Stresemann à l’ambassadeur van Hœsch (13 juillet)
 
 > La confusion qu’ont produite les entrevues des ministres alliés à 
-Chequers et à Paris a dérouté ici aussi les esprits. Nous étions sur le 
-point d’obtenir une large majorité pour l’acceptation du plan des experts, 
-parce que nous attendions de la part des puissances de fermes promesses 
-relativement à l’évacuation de la Ruhr. À présent l’affaire 
-s’accroche. On doute que Herriot puisse se maintenir longtemps. Même 
-incertitude pour l’Angleterre. Un revirement d’opinion se produit. Les 
-adversaires du cabinet, qui se cachaient dans leurs derniers trous, sortent de 
-nouveau de tous les coins et reprennent courage. Vos derniers télégrammes, 
-par lesquels vous nous avez fait savoir que Herriot déclare ne pouvoir se 
-prononcer au sujet de l’évacuation, ont causé ici une véritable 
-consternation. Je crois fort possible que, maintenant, même les quarante-cinq 
-voix de la _Deutsche Volkspartei_ soient contre le plan Dawes, et par suite non 
-seulement le plan sera rejeté au Reichstag, mais le gouvernement tombera et il 
-faudra dissoudre le Reichstag. Pour l’acceptation du plan il ne resterait que 
-le Centre et les socialistes, soit 165 voix sur 478, car je ne compte pas non 
-plus sur l’appui des démocrates, depuis que le ministre de la Reichswehr 
-m’a dit, hier, qu’il voterait contre l’acceptation, si nous n’obtenions 
-pas relativement à l’évacuation militaire des promesses précises. Vous 
-voyez par l’article de tête du _Berliner Tageblatt_ que ce journal est 
-d’avis de ne pas voter en faveur du plan Dawes, tant que nous n’avons pas 
-reçu d’assurances formelles ; l’auteur de l’article est 
-M. Dombrowski, qui est à l’aile gauche du parti démocrate.
+  Chequers et à Paris a dérouté ici aussi les esprits. Nous étions sur le 
+  point d’obtenir une large majorité pour l’acceptation du plan des experts, 
+  parce que nous attendions de la part des puissances de fermes promesses 
+  relativement à l’évacuation de la Ruhr. À présent l’affaire 
+  s’accroche. On doute que Herriot puisse se maintenir longtemps. Même 
+  incertitude pour l’Angleterre. Un revirement d’opinion se produit. Les 
+  adversaires du cabinet, qui se cachaient dans leurs derniers trous, sortent de 
+  nouveau de tous les coins et reprennent courage. Vos derniers télégrammes, 
+  par lesquels vous nous avez fait savoir que Herriot déclare ne pouvoir se 
+  prononcer au sujet de l’évacuation, ont causé ici une véritable 
+  consternation. Je crois fort possible que, maintenant, même les quarante-cinq 
+  voix de la _Deutsche Volkspartei_ soient contre le plan Dawes, et par suite non 
+  seulement le plan sera rejeté au Reichstag, mais le gouvernement tombera et il 
+  faudra dissoudre le Reichstag. Pour l’acceptation du plan il ne resterait que 
+  le Centre et les socialistes, soit 165 voix sur 478, car je ne compte pas non 
+  plus sur l’appui des démocrates, depuis que le ministre de la Reichswehr 
+  m’a dit, hier, qu’il voterait contre l’acceptation, si nous n’obtenions 
+  pas relativement à l’évacuation militaire des promesses précises. Vous 
+  voyez par l’article de tête du _Berliner Tageblatt_ que ce journal est 
+  d’avis de ne pas voter en faveur du plan Dawes, tant que nous n’avons pas 
+  reçu d’assurances formelles ; l’auteur de l’article est 
+  M. Dombrowski, qui est à l’aile gauche du parti démocrate.
 
 > Je vous prie donc, dans vos entretiens avec les représentants des puissances 
-étrangères, de ne laisser subsister aucun doute sur l’importance 
-primordiale de cette question de l’évacuation. Il me faut savoir quand le 
-dernier soldat français quittera cette zone occupée contrairement au traité. 
-Il n’est pas nécessaire que soit précisé tel jour de tel mois ; il 
-suffit que le délai dépende de l’exécution de tel ou tel détail défini 
-du plan des experts, mais il faut que je puisse dire au peuple allemand qu’à 
-un moment prochain les territoires seront libres, sans quoi on me jettera aux 
-pieds tout le plan Dawes. Je crois faire toutes les avances possibles si je 
-propose de commencer l’évacuation dès que l’emprunt international sera 
-assuré et que les actions allemandes de préférence seront disponibles.
+  étrangères, de ne laisser subsister aucun doute sur l’importance 
+  primordiale de cette question de l’évacuation. Il me faut savoir quand le 
+  dernier soldat français quittera cette zone occupée contrairement au traité. 
+  Il n’est pas nécessaire que soit précisé tel jour de tel mois ; il 
+  suffit que le délai dépende de l’exécution de tel ou tel détail défini 
+  du plan des experts, mais il faut que je puisse dire au peuple allemand qu’à 
+  un moment prochain les territoires seront libres, sans quoi on me jettera aux 
+  pieds tout le plan Dawes. Je crois faire toutes les avances possibles si je 
+  propose de commencer l’évacuation dès que l’emprunt international sera 
+  assuré et que les actions allemandes de préférence seront disponibles.
 
 > Pour vous faire une idée des dispositions du cabinet, je puis vous dire que, 
-quand je l’ai mis au courant de votre entretien avec Herriot, il a déclaré 
-à l’unanimité qu’il ne pourrait pas recommander au Reichstag 
-l’acceptation du plan, si l’évacuation militaire n’avait pas lieu. Alors 
-il me paraît sûr que le cabinet se décomposera, car au moins les deux 
-ministres de la _Deutsche Volkspartei_ se retireront. Il est possible que je 
-voie les choses trop en noir, mais d’après votre dernier compte rendu sur 
-votre entretien avec Herriot je doute que le plan des experts soit mis à 
-exécution et je ne m’attends qu’aux plus sérieux conflits.
+  quand je l’ai mis au courant de votre entretien avec Herriot, il a déclaré 
+  à l’unanimité qu’il ne pourrait pas recommander au Reichstag 
+  l’acceptation du plan, si l’évacuation militaire n’avait pas lieu. Alors 
+  il me paraît sûr que le cabinet se décomposera, car au moins les deux 
+  ministres de la _Deutsche Volkspartei_ se retireront. Il est possible que je 
+  voie les choses trop en noir, mais d’après votre dernier compte rendu sur 
+  votre entretien avec Herriot je doute que le plan des experts soit mis à 
+  exécution et je ne m’attends qu’aux plus sérieux conflits.
 
 ## Hœsch chez Herriot
 
@@ -654,12 +654,12 @@ Sur ce point également les membres de la conférence renvoient leur décision
 Impressions de Stresemann :
 
 > Presse anglaise extrêmement bienveillante pour la délégation allemande. La 
-rapidité avec laquelle nous avons remis notre mémorandum a fait bonne 
-impression au public anglais. On est convaincu que l’Allemagne désire 
-loyalement le succès de la conférence… La presse n’est pas indisposée, 
-comme on l’avait craint, par le grand nombre des desiderata allemands. Il est 
-à noter que dès aujourd’hui, second jour de la conférence, on considère 
-l’évacuation de la Ruhr comme le pivot des revendications allemandes.
+  rapidité avec laquelle nous avons remis notre mémorandum a fait bonne 
+  impression au public anglais. On est convaincu que l’Allemagne désire 
+  loyalement le succès de la conférence… La presse n’est pas indisposée, 
+  comme on l’avait craint, par le grand nombre des desiderata allemands. Il est 
+  à noter que dès aujourd’hui, second jour de la conférence, on considère 
+  l’évacuation de la Ruhr comme le pivot des revendications allemandes.
 
 ## Le 7 août
 
@@ -678,12 +678,12 @@ l’expression _flagrant default_ au sens que lui-même, Macdonald, lui a
 donné, le 5 août, à la Chambre des communes, à savoir :
 
 > The default which is a serions one and which cornes before the 
-Reparations-Commission, is a large, general default, a flagrant default, a 
-default, which cannot be judged to be a mechanical default, a default about 
-which it can be alleged and about which evidence can be presented. This could 
-not have taken place unless there was a conspiracy in high places to throw off 
-obligations undertaken in August 1924 by the German Goœrnement to put this 
-report into opération »
+  Reparations-Commission, is a large, general default, a flagrant default, a 
+  default, which cannot be judged to be a mechanical default, a default about 
+  which it can be alleged and about which evidence can be presented. This could 
+  not have taken place unless there was a conspiracy in high places to throw off 
+  obligations undertaken in August 1924 by the German Goœrnement to put this 
+  report into opération »
 
 Les deux questions sont donc résolues en un sens favorable à l’Allemagne.
 
@@ -1237,13 +1237,13 @@ Herriot a fait, à titre strictement confidentiel, la communication ci-après :
 > Je propose la formule suivante :
 
 > Extrême délai un an, parce que je ne crois pas pouvoir descendre au-dessous 
-et parce que je n’y suis pas autorisé par le gouvernement français.
+  et parce que je n’y suis pas autorisé par le gouvernement français.
 
 > Si cependant les relations entre la France et l’Allemagne s’amélioraient 
-bientôt, si l’état de l’opinion publique se modifiait à la suite de nos 
-communs efforts, j’envisagerais volontiers soit une réduction des effectifs 
-d’occupation, soit une diminution de la zone occupée, peut-être même une 
-mesure plus avantageuse.
+  bientôt, si l’état de l’opinion publique se modifiait à la suite de nos 
+  communs efforts, j’envisagerais volontiers soit une réduction des effectifs 
+  d’occupation, soit une diminution de la zone occupée, peut-être même une 
+  mesure plus avantageuse.
 
 > Je ne puis donner d’assurances officielles, qui me lieraient.
 
@@ -1458,145 +1458,145 @@ Au sujet de l’évacuation de Ruhrort l’entretien est renvoyé au lendemain.
 Journal de Stresemann, 16 août :
 
 > Dernier jour de la Conférence. Négociations avec Macdonald. Ensuite avec 
-Herriot et Theunis. Remise de lettres. Après-midi, séance des Quatorze. 
-Allocution à la presse. Rédaction du discours du chancelier. Dernière grande 
-séance. Signatures. Discours de Macdonald, Herriot, Kellogg, Theunis, Marx. À 
-l’hôtel. l7 août : Départ de Londres. Très fatigué. Traversée 
-Folkestone-Vlissingen. Dormi presque tout le temps. Ensuite à Berlin. 
-Rédaction d’une note à Macdonald sur la Kriegsschuld [^4-6].
+  Herriot et Theunis. Remise de lettres. Après-midi, séance des Quatorze. 
+  Allocution à la presse. Rédaction du discours du chancelier. Dernière grande 
+  séance. Signatures. Discours de Macdonald, Herriot, Kellogg, Theunis, Marx. À 
+  l’hôtel. l7 août : Départ de Londres. Très fatigué. Traversée 
+  Folkestone-Vlissingen. Dormi presque tout le temps. Ensuite à Berlin. 
+  Rédaction d’une note à Macdonald sur la Kriegsschuld [^4-6].
 
 Le lendemain du retour à Berlin, Stresemann écrit :
 
 > Samedi (16 août) matin ont d’abord eu lieu des pourparlers avec les 
-délégués français et belges. Il a été convenu qu’au sujet de 
-l’évacuation de la Ruhr la lettre du président du Conseil français au 
-chancelier serait soumise à l’approbation de ce dernier. La minute de cette 
-lettre nous a été présentée. Le texte impliquait que l’occupation de la 
-Ruhr était en accord avec le traité. M. von Schubert fit connaître quelle 
-serait en substance la teneur de la réponse allemande, dans laquelle nous 
-serions obligés de maintenir notre point de vue juridique et d’exprimer le 
-désir de voir abréger les délais d’évacuation. Aucune protestation n’a 
-été élevée.
+  délégués français et belges. Il a été convenu qu’au sujet de 
+  l’évacuation de la Ruhr la lettre du président du Conseil français au 
+  chancelier serait soumise à l’approbation de ce dernier. La minute de cette 
+  lettre nous a été présentée. Le texte impliquait que l’occupation de la 
+  Ruhr était en accord avec le traité. M. von Schubert fit connaître quelle 
+  serait en substance la teneur de la réponse allemande, dans laquelle nous 
+  serions obligés de maintenir notre point de vue juridique et d’exprimer le 
+  désir de voir abréger les délais d’évacuation. Aucune protestation n’a 
+  été élevée.
 
 > Herriot fit ensuite connaître qu’il adresserait une seconde note au 
-chancelier, précisant que la zone de Dortmund serait libérée le lendemain de 
-la signature définitive du plan des experts. Il ajouta qu’il pensait bien 
-que le départ des troupes françaises ne serait accompagné d’aucune 
-manifestation contre la France. Nous déclarâmes que nous ferions quant à 
-nous tout notre possible pour éviter des manifestations.
+  chancelier, précisant que la zone de Dortmund serait libérée le lendemain de 
+  la signature définitive du plan des experts. Il ajouta qu’il pensait bien 
+  que le départ des troupes françaises ne serait accompagné d’aucune 
+  manifestation contre la France. Nous déclarâmes que nous ferions quant à 
+  nous tout notre possible pour éviter des manifestations.
 
 > Nous entamâmes ensuite un débat sur les livraisons en nature. De sérieux 
-désaccords se manifestèrent relativement aux livraisons de matières 
-colorantes. Le Dr. Luther fit remarquer que cette industrie, dont dépendaient 
-essentiellement la production allemande et la tenue du mark, devait pouvoir 
-rester libre. Herriot répliqua que la livraison de matières colorantes par 
-l’Allemagne est expressément visée par divers passages du rapport des 
-experts ; que nous serions d’ailleurs garantis par les décisions du 
-tribunal d’arbitrage, composé pour moitié d’Allemands et dont le 
-président était un neutre ; ce que voulait la France, c’était seulement 
-que l’industrie chimique allemande ne lui refusât pas toute livraison. Cette 
-question fut renvoyée aux experts et il fut reconnu qu’en raison de 
-l’imminence de la clôture de la Conférence, le mieux serait que les experts 
-s’enfermassent en séance jusqu’à ce qu’ils se fussent mis d’accord. 
+  désaccords se manifestèrent relativement aux livraisons de matières 
+  colorantes. Le Dr. Luther fit remarquer que cette industrie, dont dépendaient 
+  essentiellement la production allemande et la tenue du mark, devait pouvoir 
+  rester libre. Herriot répliqua que la livraison de matières colorantes par 
+  l’Allemagne est expressément visée par divers passages du rapport des 
+  experts ; que nous serions d’ailleurs garantis par les décisions du 
+  tribunal d’arbitrage, composé pour moitié d’Allemands et dont le 
+  président était un neutre ; ce que voulait la France, c’était seulement 
+  que l’industrie chimique allemande ne lui refusât pas toute livraison. Cette 
+  question fut renvoyée aux experts et il fut reconnu qu’en raison de 
+  l’imminence de la clôture de la Conférence, le mieux serait que les experts 
+  s’enfermassent en séance jusqu’à ce qu’ils se fussent mis d’accord. 
 
 > Nous nous retirâmes ensuite pour rédiger notre réponse aux questions 
-posées, puisqu’elle devait être remise le jour même. Le comte Adelmann 
-suggéra d’envoyer aussi au président du Conseil français une note relative 
-à la façon dont les autorités militaires devraient se comporter après 
-conclusion de l’accord. Cette note fut rédigée également et remise 
-personnellement à M. Herriot par le chancelier dans le courant de la 
-journée. Les débats s’étant prolongés jusqu’au delà de 15 heures et 
-une courte séance des Quatorze ayant eu lieu ensuite pour enregistrer 
-certaines décisions, il ne restait pas beaucoup de temps pour préparer la 
-séance de clôture, prévue pour 18h30. Ces courts moments furent employés 
-surtout à informer la presse, soin dont je fus chargé, et à préparer un 
-discours du chancelier, pour le cas où il serait amené à en prononcer un. 
-Dans ce discours devait être traitée la question de la _Kriegsschuld_, et sur 
-ce point nous arrêtâmes une rédaction ; mais nous recommandâmes vivement 
-au chancelier de donner préalablement connaissance de ce passage à Macdonald, 
-afin qu’au moins le président de la Conférence fût au courant de notre 
-intention. Mais au même moment avait lieu une réunion des Alliés, de sorte 
-que, quand nous nous présentâmes au Foreign Office un quart d’heure avant 
-l’ouverture de la Conférence des Quatorze, i1 fut impossible de prendre 
-Macdonald à part.
+  posées, puisqu’elle devait être remise le jour même. Le comte Adelmann 
+  suggéra d’envoyer aussi au président du Conseil français une note relative 
+  à la façon dont les autorités militaires devraient se comporter après 
+  conclusion de l’accord. Cette note fut rédigée également et remise 
+  personnellement à M. Herriot par le chancelier dans le courant de la 
+  journée. Les débats s’étant prolongés jusqu’au delà de 15 heures et 
+  une courte séance des Quatorze ayant eu lieu ensuite pour enregistrer 
+  certaines décisions, il ne restait pas beaucoup de temps pour préparer la 
+  séance de clôture, prévue pour 18h30. Ces courts moments furent employés 
+  surtout à informer la presse, soin dont je fus chargé, et à préparer un 
+  discours du chancelier, pour le cas où il serait amené à en prononcer un. 
+  Dans ce discours devait être traitée la question de la _Kriegsschuld_, et sur 
+  ce point nous arrêtâmes une rédaction ; mais nous recommandâmes vivement 
+  au chancelier de donner préalablement connaissance de ce passage à Macdonald, 
+  afin qu’au moins le président de la Conférence fût au courant de notre 
+  intention. Mais au même moment avait lieu une réunion des Alliés, de sorte 
+  que, quand nous nous présentâmes au Foreign Office un quart d’heure avant 
+  l’ouverture de la Conférence des Quatorze, i1 fut impossible de prendre 
+  Macdonald à part.
 
 > Sur ce qui se passerait à la grande séance nous ne savions rien, sauf que 
-Macdonald ferait un discours de clôture, au sujet duquel il avait pris contact 
-avec moi, dans son bureau, me donnant lecture des développements qui 
-concernaient l’Allemagne. Il m’avait demandé si je pensais que ces 
-passages feraient bonne impression. Je répondis affirmativement et lui 
-rappelai qu’il nous avait promis de faire une déclaration sur 
-l’évacuation des territoires occupés à titre de sanction, Düsseldorf et 
-Ruhrort. Au sujet de cette évacuation nous nous étions également entretenus 
-avec les Français et les Belges, qui nous avaient déclaré que ces deux zones 
-seraient évacuées au plus tard le jour où la Ruhr, elle aussi, serait 
-libérée ; nous avions consigné cette déclaration, faite par Herriot et 
-Theunis au nom de leur gouvernement, dans un compte rendu rédigé par M. von 
-Schubert. Mais Macdonald me dit qu’il ne pouvait pas s’associer aux 
-gouvernements français et belge, car il était d’avis que ces deux zones 
-devraient être évacuées bien plus tôt, qu’il nous ferait parvenir une 
-déclaration particulière du gouvernement britannique, qui serait beaucoup 
-plus à notre avantage.
+  Macdonald ferait un discours de clôture, au sujet duquel il avait pris contact 
+  avec moi, dans son bureau, me donnant lecture des développements qui 
+  concernaient l’Allemagne. Il m’avait demandé si je pensais que ces 
+  passages feraient bonne impression. Je répondis affirmativement et lui 
+  rappelai qu’il nous avait promis de faire une déclaration sur 
+  l’évacuation des territoires occupés à titre de sanction, Düsseldorf et 
+  Ruhrort. Au sujet de cette évacuation nous nous étions également entretenus 
+  avec les Français et les Belges, qui nous avaient déclaré que ces deux zones 
+  seraient évacuées au plus tard le jour où la Ruhr, elle aussi, serait 
+  libérée ; nous avions consigné cette déclaration, faite par Herriot et 
+  Theunis au nom de leur gouvernement, dans un compte rendu rédigé par M. von 
+  Schubert. Mais Macdonald me dit qu’il ne pouvait pas s’associer aux 
+  gouvernements français et belge, car il était d’avis que ces deux zones 
+  devraient être évacuées bien plus tôt, qu’il nous ferait parvenir une 
+  déclaration particulière du gouvernement britannique, qui serait beaucoup 
+  plus à notre avantage.
 
 > Notre délégation était encore au travail, lorsque Sir M. Hankey nous 
-remit copie d’une lettre que Macdonald avait envoyée à Herriot. Dans cette 
-lettre Macdonald insistait sur le caractère illégitime de l’occupation de 
-la Ruhr et déclarait être d’avis que la mise en application du plan des 
-experts rendrait nécessaire l’évacuation sans délai. Nous fûmes heureux 
-de cette lettre, qui en tout cas nous donnait la possibilité de reprendre la 
-question de l’abrègement des délais. Tout d’un coup nous fûmes priés de 
-rendre cette lettre, de sorte que nous craignions que Macdonald ne 
-l’annulât. Mais elle devait nous être rendue dans la soirée et il nous fut 
-dit qu’elle était restée sans modification.
+  remit copie d’une lettre que Macdonald avait envoyée à Herriot. Dans cette 
+  lettre Macdonald insistait sur le caractère illégitime de l’occupation de 
+  la Ruhr et déclarait être d’avis que la mise en application du plan des 
+  experts rendrait nécessaire l’évacuation sans délai. Nous fûmes heureux 
+  de cette lettre, qui en tout cas nous donnait la possibilité de reprendre la 
+  question de l’abrègement des délais. Tout d’un coup nous fûmes priés de 
+  rendre cette lettre, de sorte que nous craignions que Macdonald ne 
+  l’annulât. Mais elle devait nous être rendue dans la soirée et il nous fut 
+  dit qu’elle était restée sans modification.
 
 > La séance de clôture s’ouvrit. Tout d’abord plusieurs formalités 
-furent accomplies et le juriste anglais donna quelques explications sur le sens 
-de la signature de l’ensemble de l’accord. Macdonald tint ensuite son 
-discours de clôture, qui fut accueilli avec de vives marques d’approbation. 
-Le premier qui lui répondit fut Herriot, qui précisa que la France ne voulait 
-pas de vengeance, qu’elle s’en tenait à la vieille devise « Liberté, 
-Égalité, Fraternité », qu’elle avait beaucoup souffert et ne réclamait 
-que son droit.
+  furent accomplies et le juriste anglais donna quelques explications sur le sens 
+  de la signature de l’ensemble de l’accord. Macdonald tint ensuite son 
+  discours de clôture, qui fut accueilli avec de vives marques d’approbation. 
+  Le premier qui lui répondit fut Herriot, qui précisa que la France ne voulait 
+  pas de vengeance, qu’elle s’en tenait à la vieille devise « Liberté, 
+  Égalité, Fraternité », qu’elle avait beaucoup souffert et ne réclamait 
+  que son droit.
 
 > Nous nous étions demandé un certain temps si le chancelier serait obligé 
-de prononcer aussi un discours. L’ambassadeur des États-Unis et le 
-représentant de la Belgique ayant pris la parole, le chancelier la demanda à 
-son tour, mais s’abstint de parler de la _Kriegsschuld_, puisqu’il 
-n’avait pas eu la possibilité de s’entendre avec Macdonald. Le discours du 
-chancelier fut vivement applaudi ; les Américains en particulier 
-soulignèrent bien leur approbation ; ils semblaient en effet avoir une 
-conscience très inquiète, après que Kellogg s’était associé à Macdonald 
-pour nous exhorter à accepter le délai d’évacuation d’un an, conseil que 
-nous avions vivement critiqué.
+  de prononcer aussi un discours. L’ambassadeur des États-Unis et le 
+  représentant de la Belgique ayant pris la parole, le chancelier la demanda à 
+  son tour, mais s’abstint de parler de la _Kriegsschuld_, puisqu’il 
+  n’avait pas eu la possibilité de s’entendre avec Macdonald. Le discours du 
+  chancelier fut vivement applaudi ; les Américains en particulier 
+  soulignèrent bien leur approbation ; ils semblaient en effet avoir une 
+  conscience très inquiète, après que Kellogg s’était associé à Macdonald 
+  pour nous exhorter à accepter le délai d’évacuation d’un an, conseil que 
+  nous avions vivement critiqué.
 
 > Macdonald lui-même a eu pendant les derniers jours divers entretiens, soit 
-avec les trois délégués allemands, soit avec le chancelier seul ou moi seul. 
-Il revenait toujours sur ce point, qu’il ne nous avait posé aucun ultimatum, 
-qu’il s’était toujours efforcé de faire tout son possible pour 
-l’Allemagne et que nous aurions tort de douter de lui. Il se plaignait aussi 
-des critiques exprimées à son égard, devant des représentants de la presse, 
-par des membres importants de notre délégation ; en particulier un expert 
-allemand avait dit que Macdonald et Kellogg avaient pris position dans les 
-tranchées françaises. Il est exact que dans les derniers jours notre 
-délégation n’a pas été très bien disposée pour Macdonald, car nous 
-avions cru qu’il aurait pu nous soutenir mieux dans la question de 
-l’évacuation. Si nous l’avons critiqué, nos critiques ont eu au moins le 
-bon résultat qu’à la fin il s’est efforcé davantage de nous aider, en 
-particulier en ce qui concerne l’évacuation immédiate de la zone de 
-Dortmund, la lettre à Herriot et la déclaration qu’il veut nous faire sur 
-Düsseldorf et Ruhrort.
+  avec les trois délégués allemands, soit avec le chancelier seul ou moi seul. 
+  Il revenait toujours sur ce point, qu’il ne nous avait posé aucun ultimatum, 
+  qu’il s’était toujours efforcé de faire tout son possible pour 
+  l’Allemagne et que nous aurions tort de douter de lui. Il se plaignait aussi 
+  des critiques exprimées à son égard, devant des représentants de la presse, 
+  par des membres importants de notre délégation ; en particulier un expert 
+  allemand avait dit que Macdonald et Kellogg avaient pris position dans les 
+  tranchées françaises. Il est exact que dans les derniers jours notre 
+  délégation n’a pas été très bien disposée pour Macdonald, car nous 
+  avions cru qu’il aurait pu nous soutenir mieux dans la question de 
+  l’évacuation. Si nous l’avons critiqué, nos critiques ont eu au moins le 
+  bon résultat qu’à la fin il s’est efforcé davantage de nous aider, en 
+  particulier en ce qui concerne l’évacuation immédiate de la zone de 
+  Dortmund, la lettre à Herriot et la déclaration qu’il veut nous faire sur 
+  Düsseldorf et Ruhrort.
 
 > Après clôture de la Conférence nous regagnâmes notre hôtel. Nous avions 
-le sentiment qu’il nous fallait adresser à Macdonald la demande 
-d’institution d’un tribunal d’arbitrage pour rendre un jugement impartial 
-dans la question de la _Kriegsschuld_, et que nous devions lui transmettre à 
-ce sujet une déclaration avant de quitter le sol de l’Angleterre. Mais nous 
-étions si fatigués que nous ne pûmes pas arriver le même soir à une 
-rédaction définitive ; d’ailleurs nous ne pouvions plus rien remettre à 
-Macdonald, car il partait pour l’Écosse. Nous avons donc rédigé cette note 
-le dimanche, pendant notre voyage de retour. Nous la ferons transmettre à 
-Macdonald par notre ambassadeur à Londres, mais il sera opportun de n’en 
-rien dire au public, tant que nous n’aurons pas reçu sa réponse.
+  le sentiment qu’il nous fallait adresser à Macdonald la demande 
+  d’institution d’un tribunal d’arbitrage pour rendre un jugement impartial 
+  dans la question de la _Kriegsschuld_, et que nous devions lui transmettre à 
+  ce sujet une déclaration avant de quitter le sol de l’Angleterre. Mais nous 
+  étions si fatigués que nous ne pûmes pas arriver le même soir à une 
+  rédaction définitive ; d’ailleurs nous ne pouvions plus rien remettre à 
+  Macdonald, car il partait pour l’Écosse. Nous avons donc rédigé cette note 
+  le dimanche, pendant notre voyage de retour. Nous la ferons transmettre à 
+  Macdonald par notre ambassadeur à Londres, mais il sera opportun de n’en 
+  rien dire au public, tant que nous n’aurons pas reçu sa réponse.
 
 ## Les résultats de la Conférence de Londres
 
@@ -1610,398 +1610,398 @@ tiers pour l’acceptation des mesures législatives nécessitées par le plan
 Dawes. Stresemann présente les observations suivantes :
 
 > Le député Hergt a demandé quels accords pourraient être encore conclus 
-avec la partie adverse, au cas où les projets de loi en instance seraient 
-écartés par le Reichstag. Je réponds que rien de positif ne pourrait être 
-fait, tant qu’il n’aurait pas été procédé à des élections nouvelles, 
-c’est-à-dire tant que nous ne pourrons pas dire à la partie adverse qu’il 
-existe un nouveau Reichstag, prêt à traiter conformément aux décisions de 
-Londres.
+  avec la partie adverse, au cas où les projets de loi en instance seraient 
+  écartés par le Reichstag. Je réponds que rien de positif ne pourrait être 
+  fait, tant qu’il n’aurait pas été procédé à des élections nouvelles, 
+  c’est-à-dire tant que nous ne pourrons pas dire à la partie adverse qu’il 
+  existe un nouveau Reichstag, prêt à traiter conformément aux décisions de 
+  Londres.
 
 > Pendant la période qui, conformément à la Constitution, doit précéder 
-les élections, le ministre des Finances aura seulement à se préoccuper de 
-proroger les accords de la Micum. Quant au reste, tous les délais cessent de 
-courir, notamment ceux de l’évacuation ; les mines restent en régie, et 
-rien de ce qui est prévu ne se fait.
+  les élections, le ministre des Finances aura seulement à se préoccuper de 
+  proroger les accords de la Micum. Quant au reste, tous les délais cessent de 
+  courir, notamment ceux de l’évacuation ; les mines restent en régie, et 
+  rien de ce qui est prévu ne se fait.
 
 > Si nous avons ensuite un nouveau Reichstag, et qui dise oui, alors nous 
-pouvons renouer la conversation avec les autres puissances, qui sont 
-entièrement libres de reprendre ou non les négociations avec nous. Et si le 
-député Hergt croit, avec optimisme, qu’entre temps un fort sentiment 
-national se serait manifesté aux élections, qui disposerait la partie adverse 
-à un arrangement avec nous, je vous prie d’observer qu’il existe cependant 
-chez les Alliés des facteurs défavorables. En Angleterre, dix-sept cents 
-industriels ont adressé à la Chambre des Communes une pétition dans laquelle 
-ils font remarquer qu’il n’est tout de même pas du tout conforme aux 
-intérêts anglais de participer à un grand emprunt international destiné à 
-donner à l’industrie allemande, qui aujourd’hui, faute de crédits, est 
-hors d’état d’exporter, les moyens de faire de l’exportation.
+  pouvons renouer la conversation avec les autres puissances, qui sont 
+  entièrement libres de reprendre ou non les négociations avec nous. Et si le 
+  député Hergt croit, avec optimisme, qu’entre temps un fort sentiment 
+  national se serait manifesté aux élections, qui disposerait la partie adverse 
+  à un arrangement avec nous, je vous prie d’observer qu’il existe cependant 
+  chez les Alliés des facteurs défavorables. En Angleterre, dix-sept cents 
+  industriels ont adressé à la Chambre des Communes une pétition dans laquelle 
+  ils font remarquer qu’il n’est tout de même pas du tout conforme aux 
+  intérêts anglais de participer à un grand emprunt international destiné à 
+  donner à l’industrie allemande, qui aujourd’hui, faute de crédits, est 
+  hors d’état d’exporter, les moyens de faire de l’exportation.
 
 > À quoi tend tout cela ? Le 15 octobre, date la plus rapprochée possible 
-pour une reprise de négociations, l’Angleterre sera-t-elle prête à 
-s’entendre avec nous sur les bases déjà acquises ? Je n’en sais rien, 
-pas plus que je ne sais si la France ne se sera pas avisée de subordonner 
-l’évacuation de la Ruhr à des concessions commerciales. En tout cas nous 
-pouvons nous trouver après l’épreuve de ces élections en présence de 
-conditions plus défavorables qu’aujourd’hui, et tout ce que la zone 
-occupée attend des accords de Londres va se trouver différé au moins pendant 
-des mois.
+  pour une reprise de négociations, l’Angleterre sera-t-elle prête à 
+  s’entendre avec nous sur les bases déjà acquises ? Je n’en sais rien, 
+  pas plus que je ne sais si la France ne se sera pas avisée de subordonner 
+  l’évacuation de la Ruhr à des concessions commerciales. En tout cas nous 
+  pouvons nous trouver après l’épreuve de ces élections en présence de 
+  conditions plus défavorables qu’aujourd’hui, et tout ce que la zone 
+  occupée attend des accords de Londres va se trouver différé au moins pendant 
+  des mois.
 
 ### Discours de Stresemann au Reichstag (23 août)
 
 > Je vous prie de bien vouloir considérer la situation telle qu’elle se 
-présentait à nous à Londres. Nous voulions réclamer l’évacuation 
-militaire de la Ruhr, mais nous ne pouvions pas invoquer pour cela le rapport 
-des experts. Ce rapport, à mon avis, impliquait bien l’évacuation en ce 
-sens qu’il était dit dans un de ses paragraphes que la production ne devait 
-pas être troublée par d’autres contrôles non prévus par le rapport 
-lui-même, mais il ne promettait rien explicitement. On peut concevoir en effet 
-que les troupes d’occupation restent présentes et que la production 
-économique n’en soit pas troublée. Vu cette impossibilité d’invoquer 
-directement le rapport des experts, nous avons choisi une autre voie. Nous 
-avons déclaré dans une note remise par notre délégation qu’en dehors des 
-questions visées par les décisions des trois comités, deux questions 
-étaient à nos yeux indissolublement liées au débat relatif à 
-l’acceptation du plan Dawes : d’abord le départ de tous les cheminots 
-français et belges, en second lieu l’évacuation militaire de la Ruhr.
+  présentait à nous à Londres. Nous voulions réclamer l’évacuation 
+  militaire de la Ruhr, mais nous ne pouvions pas invoquer pour cela le rapport 
+  des experts. Ce rapport, à mon avis, impliquait bien l’évacuation en ce 
+  sens qu’il était dit dans un de ses paragraphes que la production ne devait 
+  pas être troublée par d’autres contrôles non prévus par le rapport 
+  lui-même, mais il ne promettait rien explicitement. On peut concevoir en effet 
+  que les troupes d’occupation restent présentes et que la production 
+  économique n’en soit pas troublée. Vu cette impossibilité d’invoquer 
+  directement le rapport des experts, nous avons choisi une autre voie. Nous 
+  avons déclaré dans une note remise par notre délégation qu’en dehors des 
+  questions visées par les décisions des trois comités, deux questions 
+  étaient à nos yeux indissolublement liées au débat relatif à 
+  l’acceptation du plan Dawes : d’abord le départ de tous les cheminots 
+  français et belges, en second lieu l’évacuation militaire de la Ruhr.
 
 > Dès le premier jour nous avons parlé de cette question avec le Premier 
-britannique et il a été d’avis que nous devions nous mettre en relation 
-avec les chefs des gouvernements français et belge. Au cours de mon premier 
-entretien avec le président du Conseil français, celui-ci m’a représenté 
-qu’il avait dit à la Chambre et au Sénat que la question de l’évacuation 
-ne serait pas posée à Londres, et il m’a déclaré qu’il aurait besoin de 
-l’assentiment du Conseil des ministres pour s’entretenir tout de même avec 
-moi à ce sujet. Ceci est un premier point, concernant la situation de principe.
+  britannique et il a été d’avis que nous devions nous mettre en relation 
+  avec les chefs des gouvernements français et belge. Au cours de mon premier 
+  entretien avec le président du Conseil français, celui-ci m’a représenté 
+  qu’il avait dit à la Chambre et au Sénat que la question de l’évacuation 
+  ne serait pas posée à Londres, et il m’a déclaré qu’il aurait besoin de 
+  l’assentiment du Conseil des ministres pour s’entretenir tout de même avec 
+  moi à ce sujet. Ceci est un premier point, concernant la situation de principe.
 
 > Un autre point était l’état de l’opinion publique française à 
-l’égard de l’évacuation. Nous discernions deux idées courantes dans le 
-public en France et en Belgique. D’abord celle-ci, que l’évacuation — 
-j’entends toujours par ce mot l’évacuation militaire — devait 
-s’opérer dans le délai de deux ans, à la condition qu’entre temps aurait 
-eu lieu la commercialisation des obligations allemandes, obligations 
-industrielles et obligations des chemins de fer, jusqu’à concurrence d’un 
-milliard et demi de marks. Puis, à côté de cette idée d’ordre matériel, 
-une autre, d’ordre politique, formulable ainsi : « Oui, nous sommes 
-prêts à évacuer prochainement la Ruhr, mais nous subordonnons notre 
-décision au résultat des opérations de contrôle militaire interallié qui 
-vont avoir lieu en Allemagne. » Évidemment cette prétention n’était pas 
-faite pour nous inquiéter beaucoup, mais avec cette question du contrôle 
-militaire des chicanes étaient à prévoir, de sorte que nous n’avions plus 
-de certitude quant à la fixation du délai de l’évacuation. Pour ce qui est 
-de la commercialisation, il me semble qu’il aurait été impossible de tirer 
-de notre économie un milliard et demi de marks.
+  l’égard de l’évacuation. Nous discernions deux idées courantes dans le 
+  public en France et en Belgique. D’abord celle-ci, que l’évacuation — 
+  j’entends toujours par ce mot l’évacuation militaire — devait 
+  s’opérer dans le délai de deux ans, à la condition qu’entre temps aurait 
+  eu lieu la commercialisation des obligations allemandes, obligations 
+  industrielles et obligations des chemins de fer, jusqu’à concurrence d’un 
+  milliard et demi de marks. Puis, à côté de cette idée d’ordre matériel, 
+  une autre, d’ordre politique, formulable ainsi : « Oui, nous sommes 
+  prêts à évacuer prochainement la Ruhr, mais nous subordonnons notre 
+  décision au résultat des opérations de contrôle militaire interallié qui 
+  vont avoir lieu en Allemagne. » Évidemment cette prétention n’était pas 
+  faite pour nous inquiéter beaucoup, mais avec cette question du contrôle 
+  militaire des chicanes étaient à prévoir, de sorte que nous n’avions plus 
+  de certitude quant à la fixation du délai de l’évacuation. Pour ce qui est 
+  de la commercialisation, il me semble qu’il aurait été impossible de tirer 
+  de notre économie un milliard et demi de marks.
 
 > M. Herriot se rendit à Paris et, triomphant de ces résistances, dont la 
-conséquence aurait été le renvoi de l’évacuation on ne sait à quand, il 
-obtint du Conseil des ministres le principe de l’évacuation dans un délai 
-maximum d’un an. Nous continuâmes nos pourparlers avec lui et nous lui 
-déclarâmes que nous ne pouvions pas accepter une promesse d’évacuation 
-dans un an sans un commencement d’évacuation beaucoup plus tôt.
+  conséquence aurait été le renvoi de l’évacuation on ne sait à quand, il 
+  obtint du Conseil des ministres le principe de l’évacuation dans un délai 
+  maximum d’un an. Nous continuâmes nos pourparlers avec lui et nous lui 
+  déclarâmes que nous ne pouvions pas accepter une promesse d’évacuation 
+  dans un an sans un commencement d’évacuation beaucoup plus tôt.
 
 > Là-dessus vint se greffer la question d’arrangements commerciaux, 
-introduite par le ministre Clémentel. Le Dr. Luther commença par déclarer à 
-M. Clémentel que nous refusions d’entrer en négociation à ce sujet, 
-parce que dans la question de l’évacuation nous ne rencontrions pas dans la 
-délégation française cet esprit conciliant qui aurait pu nous déterminer à 
-penser que sur un autre terrain aussi nous pourrions nous entendre. Cependant 
-notre situation était très délicate, car nous avions à décider si par une 
-concession en matière commerciale nous ne pourrions pas faire abréger les 
-délais d’évacuation. Finalement, après des discussions très serrées, 
-nous fûmes d’avis qu’il valait mieux céder un peu relativement au délai 
-final que de nous dessaisir de nos atouts pour de sérieuses négociations 
-économiques futures.
+  introduite par le ministre Clémentel. Le Dr. Luther commença par déclarer à 
+  M. Clémentel que nous refusions d’entrer en négociation à ce sujet, 
+  parce que dans la question de l’évacuation nous ne rencontrions pas dans la 
+  délégation française cet esprit conciliant qui aurait pu nous déterminer à 
+  penser que sur un autre terrain aussi nous pourrions nous entendre. Cependant 
+  notre situation était très délicate, car nous avions à décider si par une 
+  concession en matière commerciale nous ne pourrions pas faire abréger les 
+  délais d’évacuation. Finalement, après des discussions très serrées, 
+  nous fûmes d’avis qu’il valait mieux céder un peu relativement au délai 
+  final que de nous dessaisir de nos atouts pour de sérieuses négociations 
+  économiques futures.
 
 > On s’est demandé ce qui a bien pu se passer ce mardi, 12 août, où le 
-chef d’un important groupement économique [^4-7] était à Londres et, 
-d’après les journaux français, donnait clairement à entendre que son 
-groupe parlementaire ne soutiendrait plus M. Herriot si certaines conditions 
-n’étaient pas remplies. D’après tout ce qu’a dit la presse et que 
-j’ai des raisons de croire exact, M. Herriot courait à un moment le risque 
-de s’entendre dire : « Aucun arrangement n’est intervenu au sujet des 
-dettes interalliées, vous ne nous rapportez aucun avantage commercial, et si 
-troisièmement vous cédez encore aux Allemands au sujet des délais 
-d’évacuation, l’impression à la Chambre va être telle que peut-être 
-vous ne resterez pas ministre. »
+  chef d’un important groupement économique [^4-7] était à Londres et, 
+  d’après les journaux français, donnait clairement à entendre que son 
+  groupe parlementaire ne soutiendrait plus M. Herriot si certaines conditions 
+  n’étaient pas remplies. D’après tout ce qu’a dit la presse et que 
+  j’ai des raisons de croire exact, M. Herriot courait à un moment le risque 
+  de s’entendre dire : « Aucun arrangement n’est intervenu au sujet des 
+  dettes interalliées, vous ne nous rapportez aucun avantage commercial, et si 
+  troisièmement vous cédez encore aux Allemands au sujet des délais 
+  d’évacuation, l’impression à la Chambre va être telle que peut-être 
+  vous ne resterez pas ministre. »
 
 > Permettez-moi maintenant de noter les divers faits qui ont modifié 
-l’ensemble de la situation dans les derniers jours. D’abord la date du 15 
-août fixé comme point de départ des délais d’évacuation. Aujourd’hui 
-il semble que l’affaire aille de soi. Mais pas du tout. Tous les autres 
-délais partent d’octobre, partent du jour où aura lieu la libération 
-économique. Quand nous demandâmes à Herriot quel serait le jour de départ 
-pour les délais d’évacuation, la délégation française commença par ne 
-rien répondre et nous renvoya au lendemain. Le lendemain elle nous dit que 
-pour se montrer conciliante, elle consentait à ne pas lier cette date à 
-d’autres, mais adopterait le jour où nous signerions à Londres. Ceci nous 
-faisait toujours gagner six à huit semaines.
+  l’ensemble de la situation dans les derniers jours. D’abord la date du 15 
+  août fixé comme point de départ des délais d’évacuation. Aujourd’hui 
+  il semble que l’affaire aille de soi. Mais pas du tout. Tous les autres 
+  délais partent d’octobre, partent du jour où aura lieu la libération 
+  économique. Quand nous demandâmes à Herriot quel serait le jour de départ 
+  pour les délais d’évacuation, la délégation française commença par ne 
+  rien répondre et nous renvoya au lendemain. Le lendemain elle nous dit que 
+  pour se montrer conciliante, elle consentait à ne pas lier cette date à 
+  d’autres, mais adopterait le jour où nous signerions à Londres. Ceci nous 
+  faisait toujours gagner six à huit semaines.
 
 > Second point : Nous avions déclaré que nous ne pouvions pas nous contenter 
-d’une promesse de délai final, que nous désirions l’évacuation très 
-prochaine de certaines zones. On nous promit alors d’évacuer la ville de 
-Dortmund ; en continuant à discuter, nous obtînmes l’évacuation de la 
-zone de Dortmund, et finalement il nous fut accordé que l’ordre pour cette 
-évacuation porterait : vingt-quatre heures après signature du procès-verbal 
-de Londres. J’ai attaché une grande importance à cette évacuation d’une 
-des deux capitales du bassin de la Ruhr, car je me suis dit que la population 
-allait avoir une preuve manifeste du commencement de la libération, et que 
-cela aurait une grande influence sur son moral, je dirai aussi sur la 
-mentalité des militaires dans les autres zones, car ils verraient qu’ils ne 
-sont pas dans la Ruhr pour toujours et ils se comporteraient autrement que 
-s’ils devaient y rester à perpétuité.
+  d’une promesse de délai final, que nous désirions l’évacuation très 
+  prochaine de certaines zones. On nous promit alors d’évacuer la ville de 
+  Dortmund ; en continuant à discuter, nous obtînmes l’évacuation de la 
+  zone de Dortmund, et finalement il nous fut accordé que l’ordre pour cette 
+  évacuation porterait : vingt-quatre heures après signature du procès-verbal 
+  de Londres. J’ai attaché une grande importance à cette évacuation d’une 
+  des deux capitales du bassin de la Ruhr, car je me suis dit que la population 
+  allait avoir une preuve manifeste du commencement de la libération, et que 
+  cela aurait une grande influence sur son moral, je dirai aussi sur la 
+  mentalité des militaires dans les autres zones, car ils verraient qu’ils ne 
+  sont pas dans la Ruhr pour toujours et ils se comporteraient autrement que 
+  s’ils devaient y rester à perpétuité.
 
 > Nous demandâmes ensuite à la délégation française ce qu’il adviendrait 
-de tous les territoires occupés après le 11 janvier en raison des mesures 
-douanières ou de leur intérêt comme nœuds de voies ferrées, Offenburg, 
-Appenweier, les ports de Carlsruhe et de Mannheim, Wesel, Emmerich, Vohwinkel, 
-Königswinter, Remscheid. Nous avons obtenu que l’évacuation militaire 
-aurait lieu en même temps que l’abolition des mesures douanières. C’est 
-un nouvel avantage notable. On pourrait dire, il est vrai, qu’il est tout 
-naturel que, la barrière douanière tombant, l’occupation militaire tombe du 
-même coup. En ces choses malheureusement ce n’est pas toujours la logique 
-qui prévaut. Car à ce compte Düsseldorf et Duisbourg auraient dû être 
-évacuées depuis longtemps ; occupées à titre de sanction pour refus de 
-paiement de la part de l’Allemagne, ces deux villes auraient dû être 
-libérées immédiatement après l’ultimatum de Londres. Or, voilà des 
-années que nous luttons à leur sujet. À Londres nous avons obtenu également 
-une date pour leur évacuation. C’est pourquoi je dis que les populations 
-intéressées doivent de la reconnaissance à M. Herriot, qui s’est 
-déclaré prêt à quitter toutes ces zones sans marchander.
+  de tous les territoires occupés après le 11 janvier en raison des mesures 
+  douanières ou de leur intérêt comme nœuds de voies ferrées, Offenburg, 
+  Appenweier, les ports de Carlsruhe et de Mannheim, Wesel, Emmerich, Vohwinkel, 
+  Königswinter, Remscheid. Nous avons obtenu que l’évacuation militaire 
+  aurait lieu en même temps que l’abolition des mesures douanières. C’est 
+  un nouvel avantage notable. On pourrait dire, il est vrai, qu’il est tout 
+  naturel que, la barrière douanière tombant, l’occupation militaire tombe du 
+  même coup. En ces choses malheureusement ce n’est pas toujours la logique 
+  qui prévaut. Car à ce compte Düsseldorf et Duisbourg auraient dû être 
+  évacuées depuis longtemps ; occupées à titre de sanction pour refus de 
+  paiement de la part de l’Allemagne, ces deux villes auraient dû être 
+  libérées immédiatement après l’ultimatum de Londres. Or, voilà des 
+  années que nous luttons à leur sujet. À Londres nous avons obtenu également 
+  une date pour leur évacuation. C’est pourquoi je dis que les populations 
+  intéressées doivent de la reconnaissance à M. Herriot, qui s’est 
+  déclaré prêt à quitter toutes ces zones sans marchander.
 
 > Je ne sais pas si la présence de M. Herriot est un élément de la 
-situation politique sur lequel nous puissions établir pour longtemps nos 
-calculs. M. Herriot ne sait pas lui-même quel sort lui est réservé. Mais 
-ce qui prouve en faveur de son caractère, c’est qu’il nous a dit qu’il 
-voulait nous donner un signe visible de ses dispositions en procédant dès que 
-possible à une évacuation, et il a tenu parole en libérant Offenburg et 
-Appenweier. Je lui en donne acte sans hésiter, car je ne crois pas que l’on 
-fasse des progrès en politique étrangère si l’on voit toujours dans 
-l’adversaire un coquin méditant un mauvais coup.
+  situation politique sur lequel nous puissions établir pour longtemps nos 
+  calculs. M. Herriot ne sait pas lui-même quel sort lui est réservé. Mais 
+  ce qui prouve en faveur de son caractère, c’est qu’il nous a dit qu’il 
+  voulait nous donner un signe visible de ses dispositions en procédant dès que 
+  possible à une évacuation, et il a tenu parole en libérant Offenburg et 
+  Appenweier. Je lui en donne acte sans hésiter, car je ne crois pas que l’on 
+  fasse des progrès en politique étrangère si l’on voit toujours dans 
+  l’adversaire un coquin méditant un mauvais coup.
 
 > Au sujet de l’évacuation de la zone de Cologne, je me permets d’attirer 
-votre attention sur les explications que M. Herriot vient de donner à la 
-Chambre française. D’après le compte rendu de la séance de la nuit 
-dernière, il a dit : « Nous nous trouvons ici indubitablement sur le 
-terrain du traité. Nous avons décidé de demander un avis juridique sur 
-l’application de l’article 429. Hurst et Fromageot sont tombés d’accord 
-sur l’interprétation suivante, qui établit notre droit : Les puissances 
-alliées agiront correctement et en plein accord avec les dispositions du 
-traité de paix en examinant quelque temps avant le 10 janvier 1925 si 
-l’Allemagne a rempli fidèlement les conditions du traité, afin d’établir 
-si les territoires visés à l’article 429 et présentement occupés peuvent 
-être évacués ou non. Ainsi l’évacuation de la zone de Cologne n’est pas 
-à envisager avant que les conditions voulues, y compris le désarmement, ne 
-soient satisfaites. » 
+  votre attention sur les explications que M. Herriot vient de donner à la 
+  Chambre française. D’après le compte rendu de la séance de la nuit 
+  dernière, il a dit : « Nous nous trouvons ici indubitablement sur le 
+  terrain du traité. Nous avons décidé de demander un avis juridique sur 
+  l’application de l’article 429. Hurst et Fromageot sont tombés d’accord 
+  sur l’interprétation suivante, qui établit notre droit : Les puissances 
+  alliées agiront correctement et en plein accord avec les dispositions du 
+  traité de paix en examinant quelque temps avant le 10 janvier 1925 si 
+  l’Allemagne a rempli fidèlement les conditions du traité, afin d’établir 
+  si les territoires visés à l’article 429 et présentement occupés peuvent 
+  être évacués ou non. Ainsi l’évacuation de la zone de Cologne n’est pas 
+  à envisager avant que les conditions voulues, y compris le désarmement, ne 
+  soient satisfaites. » 
 
 > Il est un point sur lequel je n’ai aucun doute. L’accord de Londres, aux 
-termes du rapport des experts, doit apporter la solution de la question des 
-réparations ; par conséquent si cet accord se réalise, l’assentiment 
-donné par l’Allemagne à cette solution des réparations signifiera que 
-l’Allemagne s’acquitte de ses obligations. Reste à attendre le résultat 
-de la reprise du contrôle militaire, que le gouvernement allemand a acceptée, 
-parce qu’il savait très bien l’importance décisive de cette question du 
-contrôle militaire pour toutes les relations de l’Allemagne avec les autres 
-puissances et pour l’évacuation de la zone de Cologne. Je constate à ce 
-propos qu’aucune des puissances contractantes ne prétend plus que les 
-délais de cinq, dix et quinze ans, prévus pour l’évacuation des trois 
-zones, n’ont pas commencé à courir ; pour tout le monde la seule question 
-est de savoir si l’Allemagne s’acquitte de ses obligations.
+  termes du rapport des experts, doit apporter la solution de la question des 
+  réparations ; par conséquent si cet accord se réalise, l’assentiment 
+  donné par l’Allemagne à cette solution des réparations signifiera que 
+  l’Allemagne s’acquitte de ses obligations. Reste à attendre le résultat 
+  de la reprise du contrôle militaire, que le gouvernement allemand a acceptée, 
+  parce qu’il savait très bien l’importance décisive de cette question du 
+  contrôle militaire pour toutes les relations de l’Allemagne avec les autres 
+  puissances et pour l’évacuation de la zone de Cologne. Je constate à ce 
+  propos qu’aucune des puissances contractantes ne prétend plus que les 
+  délais de cinq, dix et quinze ans, prévus pour l’évacuation des trois 
+  zones, n’ont pas commencé à courir ; pour tout le monde la seule question 
+  est de savoir si l’Allemagne s’acquitte de ses obligations.
 
 > J’en viens à parler de l’attitude du gouvernement britannique. 
-M. Macdonald a écrit au président du Conseil français une lettre relative 
-à l’évacuation de la Ruhr. Dans cette dernière, qui nous a été 
-communiquée peu de temps avant la clôture de la Conférence, le Premier 
-anglais, parfaitement d’accord avec nous, conteste la légitimité de 
-l’occupation de la Ruhr, puis il affirme qu’à son avis il eût été 
-préférable, et conforme au plan des experts, d’accorder immédiatement 
-l’évacuation de ce territoire et enfin — ceci est le point essentiel — 
-il déclare que les résultats du plan Dawes ne doivent pas être compromis par 
-une prolongation de l’occupation de la Ruhr, et invite en conséquence les 
-gouvernements français et belge à tout faire pour hâter la fin de cette 
-occupation. Ce qui résulte pour moi de ces déclarations, c’est que le pacte 
-de Londres ne va pas signifier la fin de notre lutte pour la libération de la 
-Ruhr, mais le commencement d’une lutte nouvelle. (_Vifs applaudissements du 
-côté des nationalistes_.) La presse allemande a donc tort de dire : « Le 
-bassin de la Ruhr va rester occupé pendant un an encore. » Non, car dès 
-que la zone de Dortmund sera libre, le devoir du gouvernement allemand sera de 
-combattre pour que, morceau après morceau, le reste du district soit libéré 
-au fur et à mesure de l’application du plan des experts et, ce faisant, il 
-aura le grand avantage moral de pouvoir se référer à cette lettre du Premier 
-anglais.
+  M. Macdonald a écrit au président du Conseil français une lettre relative 
+  à l’évacuation de la Ruhr. Dans cette dernière, qui nous a été 
+  communiquée peu de temps avant la clôture de la Conférence, le Premier 
+  anglais, parfaitement d’accord avec nous, conteste la légitimité de 
+  l’occupation de la Ruhr, puis il affirme qu’à son avis il eût été 
+  préférable, et conforme au plan des experts, d’accorder immédiatement 
+  l’évacuation de ce territoire et enfin — ceci est le point essentiel — 
+  il déclare que les résultats du plan Dawes ne doivent pas être compromis par 
+  une prolongation de l’occupation de la Ruhr, et invite en conséquence les 
+  gouvernements français et belge à tout faire pour hâter la fin de cette 
+  occupation. Ce qui résulte pour moi de ces déclarations, c’est que le pacte 
+  de Londres ne va pas signifier la fin de notre lutte pour la libération de la 
+  Ruhr, mais le commencement d’une lutte nouvelle. (_Vifs applaudissements du 
+  côté des nationalistes_.) La presse allemande a donc tort de dire : « Le 
+  bassin de la Ruhr va rester occupé pendant un an encore. » Non, car dès 
+  que la zone de Dortmund sera libre, le devoir du gouvernement allemand sera de 
+  combattre pour que, morceau après morceau, le reste du district soit libéré 
+  au fur et à mesure de l’application du plan des experts et, ce faisant, il 
+  aura le grand avantage moral de pouvoir se référer à cette lettre du Premier 
+  anglais.
 
 > M. Macdonald a écrit une seconde lettre, adressée à M. le chancelier 
-du Reich, et relative aux territoires occupés à titre de sanction. Nous 
-l’avions prié de s’associer à la déclaration faite par les gouvernements 
-français et belge et précisant que ces territoires seraient évacués au plus 
-tard en même temps que la Ruhr. M. Macdonald a répondu, par cette seconde 
-lettre, que le gouvernement britannique était d’avis que les raisons qui lui 
-avaient semblé, à l’époque, justifier l’occupation de ces territoires, 
-n’existaient plus depuis longtemps et qu’il était par conséquent partisan 
-d’une évacuation immédiate. C’est une déclaration à laquelle il nous 
-sera également utile de pouvoir nous référer.
+  du Reich, et relative aux territoires occupés à titre de sanction. Nous 
+  l’avions prié de s’associer à la déclaration faite par les gouvernements 
+  français et belge et précisant que ces territoires seraient évacués au plus 
+  tard en même temps que la Ruhr. M. Macdonald a répondu, par cette seconde 
+  lettre, que le gouvernement britannique était d’avis que les raisons qui lui 
+  avaient semblé, à l’époque, justifier l’occupation de ces territoires, 
+  n’existaient plus depuis longtemps et qu’il était par conséquent partisan 
+  d’une évacuation immédiate. C’est une déclaration à laquelle il nous 
+  sera également utile de pouvoir nous référer.
 
 > Arrivons à l’affaire des cheminots français et belges. Sur ce point aussi 
-les choses n’allèrent pas toutes seules. On envisageait leur remplacement 
-par des troupes du génie, on cherchait quelque compromis quant à la durée de 
-leur maintien et quant au nombre des cheminots maintenus. La ferme attitude de 
-la délégation allemande a certainement contribué à faire complètement 
-céder nos adversaires. L’homme est toujours enclin à trouver parfaitement 
-naturel tout résultat acquis, mais veuillez remarquer qu’il n’était 
-nullement acquis, quand nous sommes partis pour Londres, qu’un seul cheminot 
-français ou belge allait céder la place à un cheminot de notre Reichsbahn.
+  les choses n’allèrent pas toutes seules. On envisageait leur remplacement 
+  par des troupes du génie, on cherchait quelque compromis quant à la durée de 
+  leur maintien et quant au nombre des cheminots maintenus. La ferme attitude de 
+  la délégation allemande a certainement contribué à faire complètement 
+  céder nos adversaires. L’homme est toujours enclin à trouver parfaitement 
+  naturel tout résultat acquis, mais veuillez remarquer qu’il n’était 
+  nullement acquis, quand nous sommes partis pour Londres, qu’un seul cheminot 
+  français ou belge allait céder la place à un cheminot de notre Reichsbahn.
 
 > Il y a un autre fait, que M. le ministre des Finances n’a pas encore 
-exposé et qui montre aussi combien la face des choses a changé. Je veux 
-parler de la situation nouvelle de la Commission des réparations. Jusqu’à 
-présent, c’est à la suite d’un vote de cette Commission que des mesures 
-étaient prises contre nous. L’occupation de la Ruhr, avec ses terribles 
-conséquences, a été due à un vote qu’a emporté la voix prépondérante 
-du président français.
+  exposé et qui montre aussi combien la face des choses a changé. Je veux 
+  parler de la situation nouvelle de la Commission des réparations. Jusqu’à 
+  présent, c’est à la suite d’un vote de cette Commission que des mesures 
+  étaient prises contre nous. L’occupation de la Ruhr, avec ses terribles 
+  conséquences, a été due à un vote qu’a emporté la voix prépondérante 
+  du président français.
 
 > Messieurs, il en ira tout autrement dorénavant. Dans toutes les questions 
-qui ont trait au rapport des experts, c’est-à-dire en fait dans toutes les 
-questions des réparations, la Commission des réparations ne pourra prendre 
-une décision qu’en faisant appel à un Américain. « Il sera encore pire 
-que les Français », s’est écrié un député communiste à une séance 
-de la Commission des Affaires étrangères. Cette idée est peut-être conforme 
-à la doctrine des ennemis du capital, mais quelque doctrine qu’on professe, 
-la participation de l’Amérique nous sera utile, parce qu’un créancier 
-s’intéresse toujours au sort de son débiteur. L’Amérique, intéressée 
-à l’Empire allemand par l’emprunt et à l’économie allemande par des 
-crédits privés, regardera avec de tout autres yeux le développement de nos 
-affaires. Voilà pourquoi la participation d’un Américain aura une grande 
-importance. Jusqu’à présent, à égalité des voix, la France, qui 
-possédait double vote, pouvait l’emporter. Les conditions du vote sont 
-maintenant modifiées, et de telle sorte que sans doute la Commission des 
-réparations ne pourra plus être l’instrument d’une politique 
-anti-allemande.
+  qui ont trait au rapport des experts, c’est-à-dire en fait dans toutes les 
+  questions des réparations, la Commission des réparations ne pourra prendre 
+  une décision qu’en faisant appel à un Américain. « Il sera encore pire 
+  que les Français », s’est écrié un député communiste à une séance 
+  de la Commission des Affaires étrangères. Cette idée est peut-être conforme 
+  à la doctrine des ennemis du capital, mais quelque doctrine qu’on professe, 
+  la participation de l’Amérique nous sera utile, parce qu’un créancier 
+  s’intéresse toujours au sort de son débiteur. L’Amérique, intéressée 
+  à l’Empire allemand par l’emprunt et à l’économie allemande par des 
+  crédits privés, regardera avec de tout autres yeux le développement de nos 
+  affaires. Voilà pourquoi la participation d’un Américain aura une grande 
+  importance. Jusqu’à présent, à égalité des voix, la France, qui 
+  possédait double vote, pouvait l’emporter. Les conditions du vote sont 
+  maintenant modifiées, et de telle sorte que sans doute la Commission des 
+  réparations ne pourra plus être l’instrument d’une politique 
+  anti-allemande.
 
 > D’autre part, nous ne pouvions jusqu’ici faire autre chose que nous 
-soumettre aux ordres de la Commission des réparations. On nous laissait 
-plaider notre cause, mais nous n’avions pas le droit de faire appel contre 
-ses jugements. Maintenant toute contestation qui s’élèvera entre elle et 
-nous sur tout ce qui découlera de l’application du plan des experts sera 
-soumise, le cas échéant, à un tribunal d’arbitrage paritairement composé. 
-Il est inutile d’insister sur cette amélioration.
+  soumettre aux ordres de la Commission des réparations. On nous laissait 
+  plaider notre cause, mais nous n’avions pas le droit de faire appel contre 
+  ses jugements. Maintenant toute contestation qui s’élèvera entre elle et 
+  nous sur tout ce qui découlera de l’application du plan des experts sera 
+  soumise, le cas échéant, à un tribunal d’arbitrage paritairement composé. 
+  Il est inutile d’insister sur cette amélioration.
 
 > Une autre amélioration est relative à la prise de sanctions. On peut dire 
-sans rien exagérer que cette espèce d’épée de Damoclès ne nous menace 
-plus beaucoup. Si dorénavant un manquement est reproché à l’Allemagne, ce 
-manquement ne sera plus constaté par décision de la Commission des 
-réparations, votant à la majorité, mais par décision à l’unanimité, 
-c’est-à-dire impliquant le vote du délégué américain. Si l’unanimité 
-n’est pas acquise, chaque membre de la Commission pourra en appeler à une 
-Commission d’arbitrage composée de membres impartiaux et indépendants.
+  sans rien exagérer que cette espèce d’épée de Damoclès ne nous menace 
+  plus beaucoup. Si dorénavant un manquement est reproché à l’Allemagne, ce 
+  manquement ne sera plus constaté par décision de la Commission des 
+  réparations, votant à la majorité, mais par décision à l’unanimité, 
+  c’est-à-dire impliquant le vote du délégué américain. Si l’unanimité 
+  n’est pas acquise, chaque membre de la Commission pourra en appeler à une 
+  Commission d’arbitrage composée de membres impartiaux et indépendants.
 
 > En outre, il a été stipulé à Londres que les manquements qui pourront 
-être relevés contre l’Allemagne ne seront que des manquements importants. 
-Ceci aussi n’est pas sans intérêt, car la raison pour laquelle on était 
-entré dans la Ruhr était futile. En second lieu il a été précisé que ces 
-manquements devraient être la manifestation d’un mauvais vouloir du 
-gouvernement allemand. Troisièmement que le gouvernement allemand accusé 
-d’un manquement pourrait faire appel à un tribunal d’arbitrage composé 
-pour moitié de délégués allemands. Remarquez d’ailleurs ici aussi que les 
-puissances intéressées à la vie économique allemande se garderont de 
-laisser prendre contre l’Allemagne telles et telles sanctions qui 
-déprécieraient ou anéantiraient leur propre gage.
+  être relevés contre l’Allemagne ne seront que des manquements importants. 
+  Ceci aussi n’est pas sans intérêt, car la raison pour laquelle on était 
+  entré dans la Ruhr était futile. En second lieu il a été précisé que ces 
+  manquements devraient être la manifestation d’un mauvais vouloir du 
+  gouvernement allemand. Troisièmement que le gouvernement allemand accusé 
+  d’un manquement pourrait faire appel à un tribunal d’arbitrage composé 
+  pour moitié de délégués allemands. Remarquez d’ailleurs ici aussi que les 
+  puissances intéressées à la vie économique allemande se garderont de 
+  laisser prendre contre l’Allemagne telles et telles sanctions qui 
+  déprécieraient ou anéantiraient leur propre gage.
 
 > Cette entrée d’un Américain dans la Commission des réparations, ce 
-tribunal d’arbitrage auquel pourront être soumises toutes les décisions de 
-la Commission des réparations, enfin, car je puis ajouter ce troisième point 
-que nous avons obtenu, le tribunal d’arbitrage qui connaîtra de toutes les 
-questions relatives à la libération économique des territoires occupés, 
-tout cela indique tout de même un tout autre esprit que celui qui jusqu’à 
-présent consistait à nous dicter simplement des ordres.
+  tribunal d’arbitrage auquel pourront être soumises toutes les décisions de 
+  la Commission des réparations, enfin, car je puis ajouter ce troisième point 
+  que nous avons obtenu, le tribunal d’arbitrage qui connaîtra de toutes les 
+  questions relatives à la libération économique des territoires occupés, 
+  tout cela indique tout de même un tout autre esprit que celui qui jusqu’à 
+  présent consistait à nous dicter simplement des ordres.
 
 > Tout cela dit, qu’arrivera-t-il maintenant si, malgré tout, nous refusons 
-de signer l’accord ? C’est la question qu’a posée M. le ministre des 
-Finances, et à ce moment vous l’avez interrompu de façon assez violente. De 
-nouveau nous avons entendu alors ce mot de « trahison », que certaines 
-gens affectionnent, comme s’il fallait l’introduire dans chaque phrase. 
-Non, Monsieur von Græfe, ne croyez pas que l’étranger soit si mal informé 
-de notre situation financière et que je révèle un secret, si je dis que 
-l’Allemagne traverse une crise de crédit. Notre outillage, il est vrai, est 
-parfaitement intact, et c’est sur quoi nos adversaires fondent toujours leurs 
-réclamations ; nous avons aussi une agriculture saine. Mais 
-qu’arrivera-t-il si nous ne recevons pas de nouveaux crédits ? J’ai le 
-devoir de parler franchement, afin que chacun sache où nous en sommes. 
-D’après les estimations de nos économistes, nous avons présentement des 
-crédits à court terme pour un milliard et demi de marks-or, et ces crédits 
-ne seront prolongés que si sur les questions en suspens un accord 
-s’établit. Les membres du _Reichsverband_ de l’industrie allemande, qui 
-ont tenu séance hier, et dont beaucoup sont orientés très à droite, ont 
-voté pour l’acceptation, à l’unanimité moins trois voix. Croyez-vous que 
-ce soit parce que l’accord de Londres soit l’expression même de leur 
-idéal ? Croyez-vous qu’ils ne l’ont pas critiqué aussi vivement que 
-vous ? Mais ils ont raisonné froidement et se sont dit finalement que nous 
-sommes tout de même obligés d’accepter.
+  de signer l’accord ? C’est la question qu’a posée M. le ministre des 
+  Finances, et à ce moment vous l’avez interrompu de façon assez violente. De 
+  nouveau nous avons entendu alors ce mot de « trahison », que certaines 
+  gens affectionnent, comme s’il fallait l’introduire dans chaque phrase. 
+  Non, Monsieur von Græfe, ne croyez pas que l’étranger soit si mal informé 
+  de notre situation financière et que je révèle un secret, si je dis que 
+  l’Allemagne traverse une crise de crédit. Notre outillage, il est vrai, est 
+  parfaitement intact, et c’est sur quoi nos adversaires fondent toujours leurs 
+  réclamations ; nous avons aussi une agriculture saine. Mais 
+  qu’arrivera-t-il si nous ne recevons pas de nouveaux crédits ? J’ai le 
+  devoir de parler franchement, afin que chacun sache où nous en sommes. 
+  D’après les estimations de nos économistes, nous avons présentement des 
+  crédits à court terme pour un milliard et demi de marks-or, et ces crédits 
+  ne seront prolongés que si sur les questions en suspens un accord 
+  s’établit. Les membres du _Reichsverband_ de l’industrie allemande, qui 
+  ont tenu séance hier, et dont beaucoup sont orientés très à droite, ont 
+  voté pour l’acceptation, à l’unanimité moins trois voix. Croyez-vous que 
+  ce soit parce que l’accord de Londres soit l’expression même de leur 
+  idéal ? Croyez-vous qu’ils ne l’ont pas critiqué aussi vivement que 
+  vous ? Mais ils ont raisonné froidement et se sont dit finalement que nous 
+  sommes tout de même obligés d’accepter.
 
 > Au cours de cette séance des industriels on a dit que si de nouvelles 
-élections amenaient au pouvoir un gouvernement orienté plus à droite et si 
-ce gouvernement négociait de nouveau à Londres, il y obtiendrait probablement 
-de plus larges concessions. Certes, je souhaite, moi aussi, que de nouveaux 
-résultats soient obtenus. Mais à mon avis ils ne seront obtenus que dans le 
-cadre du présent accord, et non par le moyen suggéré. Les mois qui 
-s’écouleraient à faire les élections et à procéder, au nouveau 
-Reichstag, à de nouveaux votes seraient irrémédiablement perdus pour la zone 
-occupée, perdus pour notre vie économique, et je crois aussi, comme ministre 
-des Affaires étrangères, perdus pour toute la politique étrangère. Il 
-pourrait fort bien arriver que l’avantage qui pourrait être obtenu 
-finalement quant aux délais d’évacuation, se réduise, tout compte fait, à 
-rien ; car si nous obtenions par exemple l’évacuation au bout de sept 
-mois, mais que trois mois aient été préalablement perdus, vous en seriez 
-exactement au point où nous en sommes, le délai commençant à courir à la 
-date du 15 août.
+  élections amenaient au pouvoir un gouvernement orienté plus à droite et si 
+  ce gouvernement négociait de nouveau à Londres, il y obtiendrait probablement 
+  de plus larges concessions. Certes, je souhaite, moi aussi, que de nouveaux 
+  résultats soient obtenus. Mais à mon avis ils ne seront obtenus que dans le 
+  cadre du présent accord, et non par le moyen suggéré. Les mois qui 
+  s’écouleraient à faire les élections et à procéder, au nouveau 
+  Reichstag, à de nouveaux votes seraient irrémédiablement perdus pour la zone 
+  occupée, perdus pour notre vie économique, et je crois aussi, comme ministre 
+  des Affaires étrangères, perdus pour toute la politique étrangère. Il 
+  pourrait fort bien arriver que l’avantage qui pourrait être obtenu 
+  finalement quant aux délais d’évacuation, se réduise, tout compte fait, à 
+  rien ; car si nous obtenions par exemple l’évacuation au bout de sept 
+  mois, mais que trois mois aient été préalablement perdus, vous en seriez 
+  exactement au point où nous en sommes, le délai commençant à courir à la 
+  date du 15 août.
 
 > Mais surtout, je crois que vous méconnaissez l’esprit de cette Conférence 
-de Londres, si vous croyez qu’il serait si simple de recommencer un travail 
-qui occupe les gouvernements depuis des années. Car si la Conférence n’a 
-duré que quelques semaines, par contre il a fallu des années pour que les 
-diverses puissances conçoivent l’idée d’une réunion d’experts et 
-basent la solution des réparations sur le rapport par eux présenté. La 
-Conférence une fois réunie, elle a failli échouer, tandis que les Alliés 
-débattaient entre eux ; elle a failli échouer encore, quand nous sommes 
-arrivés. Finalement tout ce travail a abouti à un résultat, mais ne croyez 
-pas qu’il vous sera si facile de ramener les gouvernements autour d’un 
-tapis vert, pour accepter un amendement quelconque, dont vous espérez un 
-avantage.
+  de Londres, si vous croyez qu’il serait si simple de recommencer un travail 
+  qui occupe les gouvernements depuis des années. Car si la Conférence n’a 
+  duré que quelques semaines, par contre il a fallu des années pour que les 
+  diverses puissances conçoivent l’idée d’une réunion d’experts et 
+  basent la solution des réparations sur le rapport par eux présenté. La 
+  Conférence une fois réunie, elle a failli échouer, tandis que les Alliés 
+  débattaient entre eux ; elle a failli échouer encore, quand nous sommes 
+  arrivés. Finalement tout ce travail a abouti à un résultat, mais ne croyez 
+  pas qu’il vous sera si facile de ramener les gouvernements autour d’un 
+  tapis vert, pour accepter un amendement quelconque, dont vous espérez un 
+  avantage.
 
 > Permettez-moi une dernière observation. On dit souvent qu’accepter le plan 
-des experts, c’est accepter l’esclavage de l’Allemagne. Il est certain 
-que sur certains points importants nous abandonnerons notre souveraineté. Mais 
-nous l’abandonnions déjà par le traité de Versailles, puisque l’article 
-248 établissait « un privilège de premier rang sur les biens de l’Empire 
-pour le règlement des réparations et autres charges résultant du 
-traité », ce qui visait en première ligne notre Reichsbahn. À l’époque 
-où la fraction nationaliste soutenait le cabinet Cuno et où notre défunt 
-collègue, le Dr. Helfferich, disait qu’il votait les impôts pour appuyer la 
-politique extérieure de ce même cabinet, on avait la conviction que nous ne 
-sortirions de cette passe qu’en fournissant un gage général, et alors aussi 
-on offrit en gage les chemins de fer, les ressources de l’industrie, de 
-l’agriculture, le revenu des douanes et des impôts. Je suis très éloigné 
-de m’élever contre un tel plan, comme vous le faites aujourd’hui 
-(_s’adressant à la droite_), pour des raisons prétendues morales, en 
-lançant le mot d’esclavage. Quand M. le chancelier vient de dire que nous 
-avons obtenu que la Ruhr et le Rhin ne soient plus des provinces à payer les 
-réparations, vous avez ri et vous avez dit que c’était maintenant 
-l’Allemagne tout entière qui serait province à réparations. Elle l’est 
-en effet, mais elle a précisément le devoir d’assumer tout entière les 
-charges supportées présentement par le territoire occupé, car vous ne pouvez 
-pas demander que les douze millions d’Allemands qui ont déjà subi tant de 
-souffrances morales donnent seuls et éternellement leurs biens pour satisfaire 
-nos créanciers.
+  des experts, c’est accepter l’esclavage de l’Allemagne. Il est certain 
+  que sur certains points importants nous abandonnerons notre souveraineté. Mais 
+  nous l’abandonnions déjà par le traité de Versailles, puisque l’article 
+  248 établissait « un privilège de premier rang sur les biens de l’Empire 
+  pour le règlement des réparations et autres charges résultant du 
+  traité », ce qui visait en première ligne notre Reichsbahn. À l’époque 
+  où la fraction nationaliste soutenait le cabinet Cuno et où notre défunt 
+  collègue, le Dr. Helfferich, disait qu’il votait les impôts pour appuyer la 
+  politique extérieure de ce même cabinet, on avait la conviction que nous ne 
+  sortirions de cette passe qu’en fournissant un gage général, et alors aussi 
+  on offrit en gage les chemins de fer, les ressources de l’industrie, de 
+  l’agriculture, le revenu des douanes et des impôts. Je suis très éloigné 
+  de m’élever contre un tel plan, comme vous le faites aujourd’hui 
+  (_s’adressant à la droite_), pour des raisons prétendues morales, en 
+  lançant le mot d’esclavage. Quand M. le chancelier vient de dire que nous 
+  avons obtenu que la Ruhr et le Rhin ne soient plus des provinces à payer les 
+  réparations, vous avez ri et vous avez dit que c’était maintenant 
+  l’Allemagne tout entière qui serait province à réparations. Elle l’est 
+  en effet, mais elle a précisément le devoir d’assumer tout entière les 
+  charges supportées présentement par le territoire occupé, car vous ne pouvez 
+  pas demander que les douze millions d’Allemands qui ont déjà subi tant de 
+  souffrances morales donnent seuls et éternellement leurs biens pour satisfaire 
+  nos créanciers.
 
 > À mon sens le peuple allemand tout entier avait vis-à-vis de nos 
-compatriotes, jusqu’ici seuls à supporter toutes les charges, le devoir de 
-répartir ces charges sur tout le territoire et de remplacer le gage 
-particulier par le gage général. Telle est l’idée qui nous a inspirés. 
-Certes, nous subissons bien des souffrances économiques. De Versailles à 
-Londres, ce fut un long chemin d’humiliation et de difficultés extrêmes. 
-Mais je suis convaincu que Londres n’est pas définitif, que Londres peut 
-être un commencement, 1e commencement d’une évolution, dont Macdonald a dit 
-qu’elle ferait cesser l’isolement des nations, qu’elle ferait collaborer 
-tous les peuples dans l’égalité des droits. Acceptez cette base d’action, 
-afin de donner aux futurs gouvernements allemands la possibilité de conduire 
-l’Allemagne vers un avenir de prospérité.
+  compatriotes, jusqu’ici seuls à supporter toutes les charges, le devoir de 
+  répartir ces charges sur tout le territoire et de remplacer le gage 
+  particulier par le gage général. Telle est l’idée qui nous a inspirés. 
+  Certes, nous subissons bien des souffrances économiques. De Versailles à 
+  Londres, ce fut un long chemin d’humiliation et de difficultés extrêmes. 
+  Mais je suis convaincu que Londres n’est pas définitif, que Londres peut 
+  être un commencement, 1e commencement d’une évolution, dont Macdonald a dit 
+  qu’elle ferait cesser l’isolement des nations, qu’elle ferait collaborer 
+  tous les peuples dans l’égalité des droits. Acceptez cette base d’action, 
+  afin de donner aux futurs gouvernements allemands la possibilité de conduire 
+  l’Allemagne vers un avenir de prospérité.
 
 Le 29 août le Reichstag vote les lois nécessitées par la mise en application 
 du plan Dawes, y compris la loi relative aux chemins de fer, adoptée à la 

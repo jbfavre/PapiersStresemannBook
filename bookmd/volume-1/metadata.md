@@ -7,9 +7,9 @@ title:
   text: Six années de politique allemande
   is_subtitle: yes
 - type: volume
-  text: La bataille de la Ruhr – La conférence de Londres
+  text: "La bataille de la Ruhr – La conférence de Londres"
 - type: volume
-  text: 1923 – 1924
+  text: "1923 – 1924"
 date:
 - first_edition: yes
   text: 1932
@@ -58,9 +58,9 @@ identifier:
   text: ISBN
 publisher: Tooptee Edition
 rights: © 2014 Tooptee Edition, Public Domain
-description: Six ans d’histoire politique allemande vue au travers des archives
+description: "Six ans d’histoire politique allemande vue au travers des archives
              de Gustav Stresemann, homme politique allemand, fondateur et
              dirigeant du Deutsche Volkspartei, chancelier en 1923 et ministre 
              des Affaires étrangères de 1923 à sa mort.
-             (Wikipedia: https://fr.wikipedia.org/wiki/Gustav_Stresemann).
+             (Wikipedia: https://fr.wikipedia.org/wiki/Gustav_Stresemann)."
 ---
