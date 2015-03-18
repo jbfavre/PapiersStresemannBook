@@ -8,10 +8,10 @@ function do_convert() {
 }
 
 SIZE=480
-for file in raw_images/page*.jpg; do
+for file in raw_images/*/page*.jpg; do
     do_convert ${file}
 done
 SIZE=800
-for file in raw_images/cover*.jpg; do
+for file in raw_images/*/cover*.jpg; do
     do_convert ${file}
 done
